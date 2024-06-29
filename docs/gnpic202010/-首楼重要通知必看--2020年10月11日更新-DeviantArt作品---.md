@@ -1,0 +1,732 @@
+# 【首楼重要通知必看】【2020年10月11日更新】DeviantArt作品...
+
+作者：孤翼寡言的白鹭
+
+TID：29544
+
+<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 1
+
+*本帖最後由 孤翼寡言的白鹭 於 2020-10-11 10:18 編輯*
+
+DeviantArt是欧美圈内的知名图片分享网站，一些不会上Pixiv的作者都会将自己制作的Giantess相关图片放在那边。但是作为一个欧美网站，语言隔阂是很大的问题，更何况去年此网站因为Hosts污染而导致不翻墙上不去了。
+在本楼中，我会发布一些在那个网站上搜罗的配文图片加以翻译，更新时间看心情。
+由于采用的方式是机翻+润色，所以难免会有不太通顺的地方，还请多多包涵。
+回复和打赏是我更新的最大动力！（为啥回复数量还比不上我的更新数量）重要通知：发现一些图片的内容含有极大争议（欧美作者你们懂吧）。可能包括种族攻击甚至乳化内容，因此特此声明，**翻译内容仅代表原作者观点，本人翻译并不代表赞同**，若某些内容引起政治方面的争议请私信通知，我会第一时间删除。
+另外本帖内容禁止转载。
+
+<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 2
+
+图名：Reality...作者：Appy-Sama<ignore_js_op>![](img/2ca9618391180a870c2537d26dd83481.png)
+
+**Reality....png** *(1.68 MB, 下載次數: 5)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUyNDR8MTgzNWEyMWF8MTYwMzgxNzQxNHwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-25 17:49 上傳
+
+你对于地球的一切认知都是假的。你从书上看到的一切、你在电视上、网上看到的一切，都是谎言……我作为女神，有引导你知晓真相的职责。你的星球只不过是我戒指上的装饰品中的一员。地球上的任何事都不是偶然发生的，无论大事小情都是因为我的影响。想知道地震是怎么发生的吗？那只不过是我发出笑声时所引起的大陆震动，海啸、雪崩之类的也是同理……我的每一个动作都会对你的星球产生影响，所以当你下次感觉到脚下的地面在颤动时，抬头仰望天空，对我回以微笑吧~该下课了，现在你知道真相、窥见真理了~</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 3
+
+图名：Shower snack作者：Appy-Sama<ignore_js_op>![](img/0b8eed54d413aa5e8fbd1f52f0112d74.png)
+
+**Shower snack.png** *(2.28 MB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUyNDV8NTM0OTg0ZDB8MTYwMzgxNzQxNHwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-25 18:04 上傳
+
+一次也好，你曾希望和我更进一步。经过几天的思考，我允许你和我一起沐浴，观看我神圣且完美的身体。你看起来很高兴，在我的脚边欣赏这一切，并亲吻我的脚以示感谢，这也让我觉得很满意。清水顺着我的身体不断流淌，每一寸肌肤都得到了清洁。但此时我的胃突然变得十分饥饿，咕噜噜地叫着，期待着有什么东西可以满足它。我低下头对你微笑，因为我在为即将在你身上发生的事而感到愉悦。我抓住了你，捏着你的腿将你举到我的眼前，以便于在你消失在我的深渊前再看你一眼。你发出了可爱的尖叫声，大声恳求我不要吃了你，但我却对你的反应感到有些失望。我本希望你可以感谢我赐予你莫大的荣誉……你曾希望和我更进一步……而现在，你……是我的一部分……</ignore_js_op> <title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 4
+
+图名：My little toy作者：Appy-Sama<ignore_js_op>![](img/11b0c187433569206611a85c7646b459.png)
+
+**My little toy.png** *(2.15 MB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUyNDZ8ZmVjMDZhZWR8MTYwMzgxNzQxNHwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-25 18:12 上傳
+
+一开始这里只有平原和山脉，直到虫子在这里出现了……我已经观察了它们很多年，看着他们建造、发展、创新、现代化……从无到有，它们创造了一大批适合他们生活的建筑。我观察着这座城市每隔几十年、几百年的变化……直到现在，我想是时候了。毁灭、暴行、恐惧和绝望的时刻已经来临。我等了很多年，等待着人类完成我的玩具。现在，游戏开始了……</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 5
+
+图名：The new job作者：Appy-Sama<ignore_js_op>![](img/4b4741ffb5487ff00667e6d27d10bafb.png)
+
+**The new job.png** *(1.98 MB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUyODh8MzRmYjgxNzJ8MTYwMzgxNzQxNHwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-26 16:46 上傳
+
+保养我的鞋子是一份全职工作，而且没有周末、没有节假日、没有休息……无论我去哪，你都将和我在一起，并在任何你意想不到的时候用你清理我的鞋。你必须适应我穿的任何一种鞋，无论是运动鞋还是高跟鞋。作为工作的酬劳，你将免于被我踩扁，并和我——确切的说是我的鞋一起度过余生（这是一份永久性协议），除此之外，你还可以食用我鞋底粘着的土作为额外奖励。</ignore_js_op> <title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 6
+
+图名：The promotion作者：Appy-Sama<ignore_js_op>![](img/5ce260d230d959d3bc300539024a157e.png)
+
+**The promotion.png** *(1.37 MB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUyOTB8NzY4MDFhYTV8MTYwMzgxNzQxNHwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-26 16:59 上傳
+
+朱莉是公司的新员工，许多人认为她是个不称职的员工，但朱莉很快就向她的老板和同事们证明了他们的错误。某天，再一次和被老板训斥后，朱莉没有就这么离开他的办公室，而是关上了身后的门，对老板微微一笑，并用了一点“魔法”把老板变成了一个小虫子。朱莉随后宣布自己将担任这家公司的新老板，并确保她之前的每一位同事都明确一点：如果他们胆敢不服从她的命令将会有什么样的后果。她把她的前任老板当做一直小脚奴，以便帮她在办公室度过漫长的一天时放松一下。而且，这会让每个人都清楚，如果他们违背了伟大的朱莉的命令后，将面临什么样的命运。</ignore_js_op> <title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 7
+
+图名：The demon is back作者：Appy-Sama<ignore_js_op>![](img/157d38378332c44c9179fb37ac8b2d5d.png)
+
+**The demon is back.png** *(992.11 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUyOTF8MTVkNjEwMjV8MTYwMzgxNzQxNHwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-26 17:07 上傳
+
+其他人曾警告过她使用黑魔法的危险性。她明白自己的所作所为有多愚蠢，但面对着这份神秘她依旧如同飞蛾扑火般一意孤行。当她抬头仰视着她所召唤出的恶魔那双火红色的眼眸时，当她被巨大的手指无助地捏住时，她觉得此时的自己真如同“飞蛾”一样。在这个万能的恶魔面前，她是那么的渺小。还没等她做出反应，就看到眼前的恶魔舔了舔她的嘴唇：“不给糖就捣蛋？”</ignore_js_op> <title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 8
+
+图名：Goddess Lee Eun Hye burns Tokyo作者：big-n-evil<ignore_js_op>![](img/3eb18dc6ce636033a6a7c66f1290f6f0.png)
+
+**Goddess Lee Eun Hye burns Tokyo.jpg** *(990.93 KB, 下載次數: 7)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUyOTJ8MTA1ZGUwMjh8MTYwMzgxNzQxNHwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-26 17:25 上傳
+
+她不在乎他们是不是活着的、会思考的生物；她不在乎他们的爱恨情仇和喜怒哀乐；她不在乎他们曾和自己是同一种族。除了蔑视以外，她对他们没有任何感情。她只在乎如何杀死他们。她只在乎如何将他们在鞋下压扁；她只在乎如何烧毁他们的城市；她只在乎如何将恐惧植入他们的心中。她叹息着将他们捏碎；她笑着将城市化为一片焦土；她愉悦地看着他们徒劳的抗争。现在她是他们的女神了。她掌控着他们的生命。她将让他们饱受痛苦。他们为她而生，并为她而死。</ignore_js_op> <title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 9
+
+图名：Giantess Park Hyun Sun owns NY作者：big-n-evil<ignore_js_op>![](img/677e17703f6d3d1a2061d643b3f13f2d.png)
+
+**Giantess Park Hyun Sun owns NY.jpg** *(402.79 KB, 下載次數: 4)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUyOTN8MThkNzZhNzJ8MTYwMzgxNzQxNHwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-26 18:20 上傳
+
+她注视着最后一艘离开港口的船，以及甲板上挤满的那些惊恐万分的人类。“没关系。”她想，“早晚会轮到他们的。”数百万人仍被困在纽约，她摧毁了所有的桥梁和隧道，所有的道路都被堵死。他们现在属于她了，她会愉快地碾死这些小生命。</ignore_js_op> <title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 10
+
+图名：Lee Eun Hye's Shrunken City作者：big-n-evil<ignore_js_op>![](img/7ee6b17ee48ff63e8abc5a3818018ca7.png)
+
+**Lee Eun Hye's Shrunken City.jpg** *(888.16 KB, 下載次數: 4)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUyOTR8NTk5MjQ0ZGR8MTYwMzgxNzQxNHwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-26 18:36 上傳
+
+摧毁一个缩小的城市总是能让她重新振作。不管她有多忙多累，也可以让一座数百万人口的大都市化为一片焦土。她从她的资产中花费了一大笔钱，为的就是可以在需要娱乐时从其他的平行宇宙里绑架来一整座城市。但是，这样的乐趣逐渐降低了。她开始觉得有些千篇一律，并开始构思新的玩法。或许她可以换上乳胶服，像调教一个不听话的奴隶那样鞭打一座城市？或许她可以让她的朋友加入她的游戏中？或许……她觉得自己说不定可以通过用脚跟碾碎一个平行宇宙的地球来获得新的刺激。没错，就是这个。但在那之前，得先解决这个可悲的城市了……</ignore_js_op> <title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 11
+
+图名：Im Ji Hye Dubai作者：big-n-evil<ignore_js_op>![](img/ff4a3f27dac3ae2bf86c8c98454bd828.png)
+
+**Im Ji Hye Dubai.jpg** *(326.38 KB, 下載次數: 4)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUyOTV8ZTczMThiMGZ8MTYwMzgxNzQ2N3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-26 18:59 上傳
+
+她终于到达了世界上最高的建筑，那是唯一能与她匹敌的建筑。她将随手捡起用来把玩的小办公楼扔掉了。它们的使命已经结束了，除了当它们摔在地面时将附近的居民吓得惊恐万分以外，它们对她来说没有任何用途了。她喜欢这些工作。没什么比在一颗原始的星球上发号施令更有趣的了，上面的居民立刻就会把她当做女神崇拜。她很享受这些机会，可以把迷人的城市夷为平地，把宏伟的建筑彻底抹除，摧毁这些“先进”文明逮捕她的幻想。她很快就会彻底征服这个世界。建造这座建筑的小虫子们将在她的母星上作为供人娱乐的奴隶贩卖，而他们星球上的资源将被彻底榨干。只要她高兴，就可以将他们的家用靴跟碾碎。她很快又接到了下一份工作，她希望这次还会一样有趣。</ignore_js_op> <title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 12
+
+图名：Taylor Swift - Omnigoddess作者：big-n-evil<ignore_js_op>![](img/6ab80d114ff650e1d3c832490d140498.png)
+
+**Taylor Swift - Omnigoddess.jpg** *(688.56 KB, 下載次數: 4)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUyOTZ8YWRlMWIyNDh8MTYwMzgxNzQ2N3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-26 19:49 上傳
+
+当泰勒第一次发现自己的能力时，她小心翼翼地不让自己伤害任何人或是产生任何破坏。很长一段时间，她和她同样的生物平静地生活在一起，远离都市，最多只变成几百米高。她因她的粉丝而活跃，就和她过去的生活那样，因为她被爱着。但随着时间流逝，情况发生了改变。她不明白为什么自己要为了虫子着想而将自己限制在这无聊的旷野荒郊。她不明白为什么自己没有被其他人当做女神一样崇拜，因为自己明显要比其他人优越很多。就在这时，她发现了自己的其他能力。她可以变得更大，甚至超越地球的大气层。她可以随意创造或毁灭物质。她可以摧毁整块大陆，然后逆转时间，不留下任何痕迹。就这样，她变成了几百千米高，开始按部就班地消灭人类。她将用她的能力创造一个新世界——属于她掌控下的世界。但在那之前，她得先清除那些曾经和她一起生活的微生物们。</ignore_js_op> <title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 13
+
+图名：Decisions, decisions作者：big-n-evil<ignore_js_op>![](img/648c93f4917f62e46dd4064180428e77.png)
+
+**Decisions, decisions.jpg** *(339.45 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUzMjV8NGYyNmQyY2J8MTYwMzgxNzQ2N3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-27 09:35 上傳
+
+她已经让这个可怜的城市屈服了，没有任何东西可以在她面前站立。事实证明，军队对她毫无办法，甚至无法伤害到她从暴露的衣服里裸露出的皮肤。她一开始就知道他们的武器对她毫无用处，这也是她为什么会选择这样的穿着晋升为女神——为了证明这对她来说只是一场游戏。现在，她面临着一个选择：继续把这座城市夷为平地，为了满足自己而杀死数百万的居民；或是允许它继续存在，只要那些居民崇拜她、臣服她。她是想马上消灭这些虫子而得到满足呢？还是想让它们在她神圣的旨意下永远痛苦地为她工作呢？这不是个简单的决定，但无论结果如何，这座城市的居民都将会为此而痛苦。</ignore_js_op> <title>14</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 14
+
+图名：Clara's Spellbook作者：big-n-evil<ignore_js_op>![](img/691c26cf3ea5ba54ab693bf7d689053e.png)
+
+**Clara's Spellbook.jpg** *(677.03 KB, 下載次數: 4)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUzMjd8NTUzMWY1M2V8MTYwMzgxNzQ2N3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-27 10:28 上傳
+
+克拉拉简直不敢相信这本魔法书竟然是真的。这本书是她在网上买的，本来准备当做恶搞礼物送给朋友。但当她收到物品后，忍不住翻看了一下，里面的咒语引起了她的兴趣。她开玩笑地尝试了其中的巨大化魔咒。她很幸运地成功了，但对于香港的居民来说就很不幸了。现在，她一边在最高处欣赏着这座城市，一边思考着下一步该做什么。“也许我该向那些蚂蚁扔些火球？不，还是用脚踩死他们更有趣。”她翻了翻手中的书。“嗯，这条看起来很有趣——思维控制。”当她漫不经心地大声读出来时，脚下的人陷入了一片恐慌中。“不，如果不用魔法就能摧毁他们的意志将会更有趣。”她不断地翻着手中的书，直到其中一条吸引了她的双眼。“心灵传动？这听起来是个完美的开始，我一直很想靠自己的想象力就把整栋大楼砸向人群。”当她开始吟唱咒语时，人类的命运就已经被确定了。对于克拉拉和她那本魔法百科全书来说，人类只不过是玩具而已。</ignore_js_op> <title>15</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 15
+
+图名：Im Seo Yeon extermination作者：big-n-evil<ignore_js_op>![](img/55402763f4b36824182cfc0458d6a66e.png)
+
+**Im Seo Yeon extermination.jpg** *(597.88 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUzMjh8ZDQ4ZDNmMzF8MTYwMzgxNzQ2N3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-27 11:08 上傳
+
+当她还是一个普通人时，认识她的好友会说她是“很有说服力的人”，而对她有敌意的人则会说她是“一个狡猾、控制欲强的婊子”。许多年来，她都不得不装成一个天真、端庄、潇洒的少女。她利用自己的外表和欺骗的天赋对无数男性（和少数女性）进行利用和压榨。每一次，她都会让那些人的生活变得支离破碎，然后迈向一段更好的关系。当她的目标达成时，一切都改变了：她获得了成为女神的方法。现在，她不必伪装自己了。她可以用她真正的想法对待其他人：虫子根本没必要存在。她再也没必要为了得到她想要的东西而装出天真可爱的样子了。她追寻的不是权力，即便整个城市甚至整个国家都会毫无疑问地执行她的每一个命令，只求她能放过他们。她拒绝了。在她看来，踩死人和踩死蚂蚁没什么区别。她是高贵的人类，不会被低等生物的道德观念所束缚。人类只不过是她脚下即将被消灭的害虫而已。数百万人死在了她的鞋底，而它们不会因此而休息，直到它们将数十亿人全部消灭。她会让人类为将他们的规则与她而付出代价——让她压抑真正的、残忍的、高傲的自我。为了这不可饶恕的罪行，她会处刑每个男人、女人和孩子。</ignore_js_op> <title>16</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 16
+
+> [我记不起来了啊 發表於 2020-9-27 16:55](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=448538&ptid=29544)
+> 楼主知道一个叫giantessnation的作者吗，特别喜欢搞政治图的。
+
+其实我主要想说的就是这货
+简直不可理喻的一直在做政治相关图，甚至还有乳化内容，我看都得挑着看
+<title>17</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 17
+
+图名：Worship Goddess Swift作者：big-n-evil<ignore_js_op>![](img/1d7c21ea92661c886a031e073233e750.png)
+
+**Worship Goddess Swift.jpg** *(3.88 MB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUzNTF8ZjRlYjc0MGR8MTYwMzgxNzQ2N3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-28 10:04 上傳
+
+“看吧，这可真的是你们自找的。我想要的、想让你们做的只不过是让你们把我当做女神来崇拜。你们需要做的只是为我建些教堂，每个小时向我祈祷一次。甚至你们只要把那些旧神的教堂改成崇拜我的教堂我也不会介意。但事实是，你们仍在偷偷信仰着你们那些愚蠢的旧神。现在，我要拿你们杀鸡儆猴。我告诉过你们我能看透你们的小心思，难道你们以为我在虚张声势吗？你们以为我会不知道你们中有不少人对我心存不屑吗？现在后悔也没用了，我要摧毁这个城市，作为对其他信徒的警告。如果你们在我的脚下，而且虔诚地崇拜我，那么能死在我的脚下应该很荣幸吧。现在我得做出决定：是留下一片焦土作为警醒，还是让其他信徒在这里重建一座更加宏伟的教会之城来纪念我。嗯，好吧，我又无尽的时间可以思考，而且你们也没法活着看到任何一种结果出现了。”</ignore_js_op> <title>18</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 18
+
+图名：Eun Ji Ye executioner作者：big-n-evil<ignore_js_op>![](img/7157fa7a45885057b04a8ed7f055607e.png)
+
+**Eun Ji Ye executioner.jpg** *(1.03 MB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUzNTJ8ZTI0MjFiMTl8MTYwMzgxNzQ2N3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-28 10:59 上傳
+
+她从来没有因为自己被分配到一颗“无用”的星球而如此高兴过。一般来说，一个星球会有些有用的东西，比如需要开发的自然资源、需要学习的新技术，甚至是值得奴役的原住民。但是这颗星球是如此令人愉悦、如此完美无瑕……如此毫无用处。这里的科技是如此原始——原住民们几乎没进行过太空旅行。原住民本身的情况则更糟——他们的身体非常弱小，即使她在“普通”的体型挥一挥手指，就可以让他们变成一团血雾。显然，作为奴隶他们同样毫无价值。而即便如此，他们还是想方设法地将这颗星球的大部分自然资源挥霍殆尽了。她看不出这个星球还有什么价值，反而对此欣喜若狂。在压抑了这么久之后，她终于可以释放出自己真正的力量了。她让自己不受限制地变大。几秒钟之内，她就变得比原住民所建造的最高的建筑物还要高；几分钟之内，她变大到了可以一脚就夷平整座城市；不到十分钟，她就成为了这个世界的顶点。她蹲下来，最后看了一眼这个她即将毁灭的世界。她微微一笑，因自己即将结束十几亿可怜生命而愉悦。她将手中的剑缓缓地插下，剑刃缓慢且不可阻挡地刺进了地球表面。很快，岩浆开始从大地的裂痕中涌出，虽然对剑没有造成丝毫影响，却破坏了附近地表上的一切。地球很快就要死了，而她就是刽子手。</ignore_js_op> <title>19</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 19
+
+图名：Goddess Perry作者：big-n-evil<ignore_js_op>![](img/ee3e75eefcf089931406f4039f765adc.png)
+
+**Goddess Perry.jpg** *(1.18 MB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUzNTN8YjU1ODk3MGV8MTYwMzgxNzQ2N3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-28 11:41 上傳
+
+自从她的土地被征服、信徒被屠杀后，她就被迫隐藏了神性数千年。没有了他们的信仰和崇拜，她的力量不断地衰退。她在等待时机，直到大众媒体和名人崇拜的时代到来。她利用自己的力量诱惑着追随者，积累了数百万“粉丝”，他们的崇拜令她重获力量。很快，她就变得比以往的任何时候都强大。是时候向这个世界展示她的真身了。只要想一想，她穿的衣服就变成了适合她真身的装束。她愉悦地长大着。她把人类、汽车、城市和山峦踩在脚下。他们将屈辱强加给她，活该落得如此下场。不需多久，她就大过了地球本身。在所有凡人的心里，她毫无疑问是一位无所不能的人。现在她即将做出一个决定：人类将成为她的崇拜者……还是美味的零食。</ignore_js_op> <title>20</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 20
+
+图名：Giantess Selfie作者：big-n-evil<ignore_js_op>![](img/35698bd974bc1fcd2fd36ea24927cec3.png)
+
+**Giantess Selfie.jpg** *(2.02 MB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUzNTR8Y2RhOGNmZjV8MTYwMzgxNzQ2N3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-28 12:41 上傳
+
+#新晋的女神们#无法战胜#随意散步#高跟鞋vs建筑物#脆弱的城市#可怜的军队#崇拜我们否则去死#下一个是你在的城市#人类只是奴隶#无限制地增长#为了乐趣杀戮#踩扁脚下的人群#碾碎你的家#导弹只能瘙痒#亲吻我们的脚#没有任何怜悯#</ignore_js_op> <title>21</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 21
+
+图名：Kai Er's happy place作者：big-n-evil<ignore_js_op>![](img/7b48eec6ef499bdfe1e8b2505eba086f.png)
+
+**Kai Er's happy place.jpg** *(835.01 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUzNTV8MmU1ZDY3YjB8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-28 15:20 上傳
+
+每个人都有一个用来解压和放松的“欢乐之地”。对可儿来说，她的这个地方要比她小一千倍，也脆弱一千倍。结束了一天的课程后，她最喜欢做的就是脱下胸罩和内裤放松自己。在她的身下，一栋栋小建筑轰然倒塌，让她感觉心情舒畅。它们甚至没法让她的皮肤感到瘙痒，但她仍然能感觉到房子、公寓和写字楼在她柔软的身体下分崩离析。她喜欢当她每踏出一步时地面所发出的咯吱声，仿佛仅仅是她的脚步就能将大地一点点地撕裂。她喜欢在人口稠密的地方晒太阳，喜欢在她享受阳光时四周传来的尖叫和骚乱。这是一个为她才会存在的地方。只有此时此地他能让她忘记大学里大批异性追求她时的压力，可以任她发泄被可怕的教授或傻乎乎的男生注视时产生的不安。心情好的时候，她会一边笑着一边用手指将高塔戳进地面，或是用她巨大的双乳压碎这个城区。而当她生气时，则会做出糟得多的事……最棒的是，无论她对这些小城市多粗暴，当她下次回来时它们总是会恢复成原来的状态。她不知道是自己每次都去了不同的维度，还是进行了一次时光旅行，而且她也不在乎。她喜欢想象她身下的那些微生物将重设前的那段时间里将她给予他们的痛苦记在心里。不管怎样，随意使用这个小空间可比减压球好用多了……</ignore_js_op> <title>22</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 22
+
+图名：Park Si Hyun's slave作者：big-n-evil<ignore_js_op>![](img/1e18be2c5dad4ea1c6dfbdc597c29af1.png)
+
+**Park Si Hyun's slave.jpg** *(900.98 KB, 下載次數: 4)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUzNTd8MDdhNjE5MjZ8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-28 16:00 上傳
+
+当她和一个网友说明“体型差性癖”时，她期待的是某个巨大化角色扮演。但令她没想到的是，她真的会遇到一位拥有体型改变能力的美女。在玩弄了一些缩小的人类、汽车、建筑甚至是整座城市后，她们决定是时候尝试一些更刺激的事了。她们为自己的巨大化换上了得体的穿着。她穿着代表顺从的奴隶装饰，而她的女主人则穿着热辣的调教服。她们想得很周全，靴子、锁链……一切。因为她们明白，一旦巨大化后，就没法回头了。她没想到自己的女主人会偷偷让她变得比预计得更小一些，但对于在下面的城市里享受足够的乐趣来说，她已经足够大了。当然，她已经得到了她女主人的许可，因为她的主人仍牵着她的狗链。而且，她的女神非常愿意看到她在这座可悲的城市中为所欲为。毕竟，当整个世界和所有人类都属于一个女神和她顺从的奴隶时，就会有很多新玩法了。</ignore_js_op> <title>23</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 23
+
+图名：Laying on Europe作者：big-n-evil<ignore_js_op>![](img/6637fbb56c24c24266967262770cfdc5.png)
+
+**Laying on Europe.jpg** *(374.58 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUzNTh8Zjc1MmFmOGN8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-28 17:22 上傳
+
+当美国总统看到最新的欧洲卫星监控画面时，不禁汗流浃背。她是在几天前出现的。100米高的她从西伯利亚的荒原中走出来。没人知道她是谁、她想做什么或她来自哪里。她什么都没说，但立刻开始攻击任何挡在她前进方向上的人类、村庄或城市。各国军队动用了子弹、、炸弹甚至核弹，却连她黑色的皮衣都没弄脏。而且在她横扫欧洲的过程中，可以确认到她的体型越来越大了。科学家们猜测她的增长与她造成的死亡人数有关，因为她在刚刚离开城市时增长的程度最多，而她前往下一个城市的过程中增长的程度很少。在她造成了数百万人死亡后，她达到了一千米的高度。然后是一万米、十万米……现在，她已经大得可以从大陆的一段够到另一端了。此时她看起来仿佛在嘲弄人类一样。她躺在那里，玩弄着自己丰满的双乳，完全不怕他们的攻击。总统不禁打了个冷颤，因为他仿佛看到她似乎正透过屏幕看着自己。他觉得这可能是自己太紧张而产生的幻觉。但随后她翻了个身，用手指在巴尔干半岛曾经存在的地方潦草地写下了一条信息。那四个字让总统吓得近乎失禁。“为我而死”</ignore_js_op> <title>24</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 24
+
+*本帖最後由 孤翼寡言的白鹭 於 2020-10-7 15:50 編輯*
+
+图名：A Manhattan作者：big-n-evil<ignore_js_op>![](img/2837cee5fa12e8a3a2372223ef93cab1.png)
+
+**A Manhattan.jpg** *(511.59 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUzNTl8Y2JiNjUxMDl8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-28 17:34 上傳
+
+几乎所有人点“曼哈顿”时，他们得到的将是一杯鸡尾酒。她是这世界上最有钱的女人，她得以使用超维度缩小射线。她不是一个“普通人”。当她点了“曼哈顿”时，她的仆人们缩小了另一个平行世界的曼哈顿，并将它摆在了她的桌子上。就像一个普通人在漫长的一天结束后会选择喝一杯鸡尾酒一样，她选择的放松方式是将一座城市夷为平地，而此时，她非常需要放松一下。对她来说，这是非常艰难的一天。而对这座城市的所有居民来说，这将是更加艰难的一天。
+
+图名：Advances in transdimensionalshrinking technology作者：big-n-evil<ignore_js_op>![](img/8db311d633f90c55798f2b5e937faa87.png)
+
+**Advances in transdimensional shrinking technology.jpg** *(739.35 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUzNjF8YjlhY2U2NGN8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-28 18:08 上傳
+
+超维度缩小射线得到了改进，现在它可以缩小更多目标，而不仅仅是个别城市。整个平行世界的地球都可以被携带，每个都可以缩小到她想要的大小。
+今晚，她陷入了控制欲强且扭曲的性癖中。当然，仅仅掌控男性甚至是城市都不足以令她的支配欲得到满足。她命令她的仆人给她拿来一个苹果大小的地球。她无法想象将七十亿生命握在一只手里的感觉竟是如此令人陶醉。缩小的人类几乎无法理解眼前的景象：一个乳房比他们的星球还大的穿着紧身皮衣、散发着性感而危险气息的女子。她想到了一个好主意。她将星球带到了她的鼻子前，深吸了一口气。她甚至闻不到任何味道，但一想到数亿小人因被吸进她的鼻孔里而死，就激动不已。这将是一个美妙的夜晚……只对于她来说。
+
+图名：Transdimensional fashion作者：big-n-evil<ignore_js_op>![](img/6a4810c7bbec769cae2cc04bb32a98fd.png)
+
+**Transdimensional fashion.jpg** *(584.95 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0MDZ8ZDk2NmMwYTJ8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-1 14:31 上傳
+
+最终，她开始炫耀起她的小玩具。既然她富有到足以买下整个世界……那为什么不让她的属下（每个人）都知道，她可以拥有任何她想要的世界？她开始在参加聚会时佩戴装饰了微型地球的首饰。当那些贵妇戴着珍珠或钻石时，她却把数十亿活着的、正在呼吸的人类围在脖子上。这是一次性的饰品。没有哪个星球可以抵挡她那美丽柔软的嫩白皮肤的摩擦。而当夜晚结束时，她就会以“好看”的名义抹杀无数生命。等她戴着地球项链参加了几次上流社会的聚会后，它就成为了一种新的时尚。她不失时机地将它进行商业化，一颗颗缩小了的星球以巨资卖给了富有的女人。而赚到的钱则都被她用于另一个特殊项目。很快，这个世界也会在她的掌握之中……图名：Strip-mining作者：big-n-evil译注：此篇开始作者将这个女商人命名为艾达，同时这也是这个模特的原名<ignore_js_op>![](img/e0837f02ffabf10912ad02e5c2025e87.png)
+
+**Strip-mining.jpg** *(878.54 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0MTJ8ZDc5MGE0ZTF8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-1 19:14 上傳
+
+作为一名精明的商人，艾达一直在寻找一个可以使她利润最大化的方法，以此来为她的特殊项目筹款。有一天，她突然想到一个好主意——她缩小以准备贩卖的星球充满了原住民不再需要的宝贵资源，为什么要让它们白白浪费呢？她可以强迫那些注定要被消灭的小人去开采它们，再将它们重新解压缩，以换取巨额利润。她很快就发现，大部分平行地球上的住民都愿意用他们星球上的资源换取他们的生存。当然，这只是暂时的而已。偶尔她也会发现一些特别傲慢的星球居民，拒绝为了她的利益而接受奴役。这是她最喜欢的类型。大多数情况下，只要将他们的月球在她的舌头上碾碎并传达给他们这样一条信息就足够了：“除非你们照我说的做，否则下一个就是你们。”而当这条信息也不足以让他们屈服时，就是真正的乐趣开始的时候了……</ignore_js_op>图名：Transdimensional apotheosis作者：big-n-evil<ignore_js_op>![](img/fe5a18a3200b89df76cda7744493167b.png)
+
+**Transdimensional apotheosis.jpg** *(625.47 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1MzF8Mjc3MWM4ZDl8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-7 15:50 上傳
+
+在掠夺了地球数百万的矿产资源并将其作为小饰品出售后，艾达的“特殊项目”终于有了成果。现在她已经不会被维度限制——成为了一位可以随意进出任何维度的宇宙游民。她不再被局限于将一座城市或是一颗星球带入她自己的维度，而是只要念头一动，眨眼之间就可以以任意大小进入任何维度，随心所欲地进行血腥破坏，然后再从那里消失。她沉醉于自己的新力量，不断地通过毁灭地球、太阳甚至整个太阳系进行试验。她特意囚禁了很多星球代替项链上的珠宝，尤其是那些有着生命、智慧和感知的生物系统的星球。有时她会异常残忍，会花整整一星期或一个月的时间在大小不同的星球上横冲直撞，好让他们明白谁是他们新的女神。而这一次，她有了一个特殊的想法。她从未巨大到可以玩弄整个星系的程度。艾达思考了一会，决定把第一次恩赐给她以前一直生活的那个维度的星系。当她靠上去时，她很欣赏自己的那个想法。她将是第一个瞬间粉碎整个星系的人……而且还有数万亿的观众。</ignore_js_op><title>25</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 25
+
+图名：Detention作者：big-n-evil<ignore_js_op>![](img/c141cd9445d3e36e71e3a0e0e15c7750.png)
+
+**Detention.jpg** *(314.61 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODUzNjB8OTBhYWY5NWN8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-9-28 17:52 上傳
+
+老师：“我们在哪里？”学生：“我们在一颗小人的星球上，小姐。”老师：“我们为什么在这里？”学生：“因为我要被处罚，小姐。”老师：“亲爱的，你知道为什么会被处罚吗？”学生：“因为我表现出了同情心。我让活体解剖实验室的两个小人逃走了，小姐。”老师：“说得没错。那你知道你的惩罚是什么吗？”学生：“不、不知道……小姐。”老师：“你的惩罚是摧毁这座城市。我不在乎你打算怎么做——用脚将他们碾碎或是吃了他们，记得要发挥你的创造力。”学生：“（抽泣声）……（抽泣声）……好的，小姐，我会努力的……”老师：“哦，好了好了，别哭了。要我帮你开个头吗？”学生：“是，小姐……拜托你了。”
+这就是为什么她总是自愿去执行留堂任务。</ignore_js_op> <title>26</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 26
+
+图名：Latex invader作者：big-n-evil<ignore_js_op>![](img/4aa105c4c14aa1795f48e7084fbad3c0.png)
+
+**Latex invader.jpg** *(793 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0MDd8YzI1NDU1YWJ8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-1 14:48 上傳
+
+女巨人被那两只围着她乱转的苍蝇惹恼了，甚至没注意到威力巨大的导弹在她被乳胶包裹着的胸部爆炸。她之所以在那里是因为她期待着摧毁东京并屠杀那里的居民，就像她在其他的许多城市做的一样（她的宇宙飞船在环绕着地球时产生了巨大的阴影，之后她传送到了地面上。当她看到自己出现在曼哈顿的摩天大楼之间时很兴奋，继而开始了破坏之旅）。她刚开始用靴子践踏那些建筑，这些傲慢的家伙就在飞机上向她挑衅。她一时无言……但几分钟后，随着一声快速地击打，飞机应声坠地。美丽的女巨人带着极大地快乐和满足感摧毁了这座城市，然后继续走向下一个……</ignore_js_op> <title>27</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 27
+
+图名：Women scorned作者：big-n-evil<ignore_js_op>![](img/a3042657d99f47e892f9f3730b5d48f2.png)
+
+**Women scorned.jpg** *(679.08 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0MTV8YWFmZTUyY2V8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-1 19:49 上傳
+
+这个社会从未接受过这对恋人。她们因为她们之间特殊的关系而被排挤，被当做二等公民对待。因此当她们莫名其妙地巨大化后，她们对人类没有一丝好感——没有善良、同情或是怜悯。世界现在属于她们了，而对她们来说人类只不过是需要娱乐时用来践踏、碾碎或吃掉的害虫而已。政府试图以任何可能的方法攻击她们，但没有任何作用，她们是不可战胜的。而她们对人类的憎恨正如她们对彼此的爱那样浓烈，即使是宣布投降的政府也逃不过居高临下的嘲笑和屠杀。她们已经决定要终结可悲的人类们，任何人都无法阻止她们。人类只能等待着被她们灭绝的命运。</ignore_js_op> <title>28</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 28
+
+图名：A memento from Paris作者：big-n-evil<ignore_js_op>![](img/f389b671e5dcf49537d518968175afc7.png)
+
+**A memento from Paris.jpg** *(740.32 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0MTZ8NzQ1ZDEzNDd8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-1 20:04 上傳
+
+“它不可爱吗？”漂亮的女巨人用她纤细的手捧着埃菲尔铁塔，对着镜头说道，“摆在家里的架子上一定很好看，这是我在这度过的日子里见过的最好的纪念品了……”她近期的一次破坏性的地球之旅的第一天，她就因为好玩而毁灭了巴黎。她喜欢到处去探索，然后将那里摧毁。当一切在她的脚下崩溃时，她因此而获得了一种满足和享受、一种统治一切的支配感。她接下来的目的地是哪里？世界屏息以待。</ignore_js_op> <title>29</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 29
+
+图名：Change of government作者：big-n-evil<ignore_js_op>![](img/00a2e75f67fc3e91203eab98aa97deed.png)
+
+**Change of government.jpg** *(849.08 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0MTh8NjgxZjExZjJ8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-1 23:10 上傳
+
+几天前，她坐在街边哭泣着，伤痕累累。这时，一位神秘的女人出现在她面前，命令她：“站起来，跟我走！”不知为何，她听了她的话，坐上了她的豪华轿车里。很快，她发现自己被带到了一栋又大又贵的酒店里。那个神秘的女人走到她身边，在她的耳边说道：“我是这世界上最有权力的女人，没有任何人能阻止我，而我将改变你的生活。”那女人让她吃下一颗药，她顿时感到头晕，而且越来越困。当她醒来时，发现自己身上的伤口都愈合了，而且还穿着一套性感的衣服。这个神秘的女人就站在她身边，房间里堆满了……地球仪？“你眼前的这些并不是地球仪。那些是缩小了的真正的地球，拥有完整的人口。我叫艾达——这个世界上最有权力的女人，同时也是那些世界的女神。我想让你在我最大、人口最多的‘星球’上担任管理者，你愿意吗？”艾达的微笑中满是施虐欲。现在她被缩小了，但仍然是一个女巨人……昨天的她还被人打得遍体鳞伤，而现在则高高在上，充满力量；昨天的她还受到暴力和侮辱的对待，而现在则像女神一样被崇拜……她将服从她女主人的任何命令……但现在她将消灭任何违逆她的人……笑着……</ignore_js_op> <title>30</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 30
+
+图名：Sea monsters作者：big-n-evil<ignore_js_op>![](img/5797aeeebd056f5d1f9f00981bfe2d0b.png)
+
+**Sea monsters.jpg** *(754.59 KB, 下載次數: 3)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0MTl8OWM4ZmNlNTd8MTYwMzgxNzUxN3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-2 00:29 上傳
+
+看到没，甜心？他们的小船根本没法伤害我们！他们太小了，刚好能放在我的指尖上。嗯，你说得没错，亲爱的。在这个小小的世界上，没有任何东西可以威胁我们。我简直不敢相信你真的买了一整个星球作为我的生日礼物！这的确很贵，但如果你能因此开心的话就值得了。你总是说我在工作上花了太多时间，而我们在一起的时间又太少了，所以我想我们可以一起统治这个星球。嗯，你真贴心，亲爱的。我想是时候和陆地上的那些小城市玩一会了。哦，你和我想的一样。让我们找个大城市，然后脱掉你那湿乎乎的比基尼……</ignore_js_op> <title>31</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 31
+
+> [dherosparkman 發表於 2020-10-2 01:18](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=448812&ptid=29544)
+> 这里又不是实名的墙内网站…就不用搞太多自我审查了吧。不过作为创作者决定权也是在楼主手里，真有觉得不合 ...
+
+如果因为这方面而引发争议甚至恶意举报就不好了吧……
+<title>32</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 32
+
+*本帖最後由 孤翼寡言的白鹭 於 2020-10-3 18:15 編輯*
+
+图名：Policing the Empire作者：big-n-evil译注：大概是从这层楼开始，作者不知为何开始陷入日本和韩国美女的崇拜之中，之后的作品几乎都是日本/韩国女巨人统治世界同时令本国居民监工的内容，如果感觉不适敬请跳过，不再单独提醒。<ignore_js_op>![](img/8922a3f81149cc5dbb49197c7d287428.png)
+
+**Policing the Empire.jpg** *(844.27 KB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0MjJ8OTQ1OWRhOGR8MTYwMzgxNzU4NnwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-2 10:44 上傳
+
+大韩帝国终于找到了解决其殖民地治安问题的方法。过去由整个师的军队才能管辖的领土，现在由一个巨人就可以控制。这种职位几乎是专门留给韩国的年轻少女的，既属于一种成人仪式，同时还可以展示大韩民族比其他国家的居民更高等。妍儿被派往纽约几个月了，现在她感到很无聊。当然，她的上司并不介意她为了恐吓当地的居民而踩扁几辆车或是吃了几个人，但她自幼就保有的幻想一直没机会实现。一切都因为美国人的叛变而发生了改变。他们征用的飞机和武器根本没法对她造成丝毫伤害，但却给了她一个她需要的东西……一个借口。现在，她可以放手去镇压这场小小的叛乱了。如果她按照自己梦想的那样将整座庞大的城市用脚碾碎，会发生什么呢？嗯，她认为这应该是对自己出色完成工作的报酬吧。
+
+图名：Ruling the Empire作者：big-n-evil<ignore_js_op>![](img/e388adf1e33cad99c3f572bf3dfad6ef.png)
+
+**Ruling the Empire.jpg** *(1.45 MB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0NjN8NDdkYTAwNDJ8MTYwMzgxNzU4NnwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-3 18:15 上傳
+
+一年过去了，妍儿所有疯狂的梦想都已经实现了。她不再是一个卑微的女警察了。她在纽约野蛮的破坏行为有效地遏制了当地居民的叛乱，因此她的上司提拔她统治整个北美洲。随着她职位的提高，她的体型也变得更大了，服装更加精致，还拥有了专属于她的王座。她不在管理她领地内的治安，把那些琐事交给了下属的女性。但尽管获得了升职，妍儿却并不是很开心。作为统治者并没有什么“乐趣”，踩死人群、碾碎汽车或推倒建筑的借口也变得更少了。有一天，当她坐在自己的王座上，准备继续自己的统治时，一个念头突然掠过她的脑海，一丝微笑在她的嘴角浮现。她想到了一个理想的借口，以便让她继续寻欢作乐。同时带给她脚下的小人们无尽的痛苦和毁灭。</ignore_js_op> <title>33</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 33
+
+图名：Disappointing assignment作者：big-n-evil<ignore_js_op>![](img/6f751f4f7926f76a09ec51456db899d8.png)
+
+**Disappointing assignment.jpg** *(701.94 KB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0MjN8ZTcxYjk4ODh8MTYwMzgxNzU4NnwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-2 11:07 上傳
+
+她简直无法相信这个星球竟如此令人失望，难怪这是她的第一个任务——这个世界上的居民连一只苍蝇都打不死。她已经找到了“地球”上最强大的国家的总统府，甚至没遇到任何像样的抵抗，他们的军队和武器根本无法阻止她随意地走向他们的国会大厦。她蹲下来看着那座小房子，它是由一个不起眼的物种构建起的不起眼的结构。“好吧……”她想，“至少我打破了征服一个世界的最快记录。也许他们下次会给我一个更有趣的任务。”</ignore_js_op> <title>34</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 34
+
+图名：What next?作者：big-n-evil<ignore_js_op>![](img/904283d7bdfa06b5e4ddcab455ddce35.png)
+
+**What next？.jpg** *(148.18 KB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0MjV8YzNkZDIzNDh8MTYwMzgxNzU4NnwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-2 13:44 上傳
+
+“接下来要怎么做呢？”她思考着。她一直都专注于如何获得究极的力量，甚至从未想过她要如何使用这股力量。她在每个方面都是出类拔萃的存在，因此她超越每个人的确是自然而然的，甚至超越“人类”本身这个概念也并不奇怪。现在，她掌握着整个星球上所有生物的生杀大权……却不知道该做什么。她觉得她可以把他们全都毁灭，但这有什么意义呢？用她的双腿或鞋跟将这个星球碾碎的确很有趣，但当这新鲜感消失时，她又该做什么呢？用她的能力将他们重置，然后……再来一次吗？如果她让他们做自己的奴隶呢？她会让他们做什么呢？被崇拜的感觉的确很好，可她又能从这些祈祷和祭祀中获得什么呢？刚开始时让整个城市的人都对她俯首称臣的确很有趣，但之后又该怎么办呢？突然，她茅塞顿开。她根本没必要做出选择。她的力量无穷无尽。她可以维持一个由自己的奴隶组成的星球，每晚将它摧毁，然后再将它重塑。除此之外，还有无数种玩法……</ignore_js_op> <title>35</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 35
+
+图名：Streetwalker作者：big-n-evil<ignore_js_op>![](img/cf78180a341d29fb62aa87fe40bfc4d1.png)
+
+**Streetwalker.jpg** *(835.91 KB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0NDB8Y2U0NDQ1ODR8MTYwMzgxNzU4NnwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-2 19:53 上傳
+
+“婊子、妓女、娼妇……”他们给她和她的职业起了很多名字。但现在，她对他们的称呼只有一个——“虫子”。对她来说，这一天本和平常没什么区别，在街上做着自己的生意。一辆车停在她的身边，司机问她是否愿意体验一些“新鲜的”。她答应了，然后他就突然掏出枪来对准了她。她以为自己就要死了，于是紧紧地闭上了眼睛，等待着死亡。过了一会，她再次睁开眼睛时，那辆车已经不在了。实际上，整条街都不在了，她能看到的只有身下铺的灰色地毯和蓝色的天空。她花了好久才反应过来，将注意力集中在双眼上。很快，她就不可避免地发现了一个事实：她非常巨大，而且是个女神。现在，轮到她去伤害和羞辱他们了。现在，轮到他们被奚落、嘲讽、虐待和唾弃了。现在，她那在过去犹如毡板上的肉一样任由男性玩弄的肉体将成为他们恐惧、畏惧、敬畏和崇拜的对象。她迫不及待地将那些病态的恋物癖强加给他们。她想知道当她每跨出一步用鞋跟将整条街踩扁时，那些恋足癖会不会兴奋得尖叫起来；她想知道当自己为了消遣和赞颂强行奴役他们时，他们会不会荣幸得发出欢呼声。有一件事是确定的——有人要被玩弄了。但这一次，这个人不会是她。</ignore_js_op> <title>36</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 36
+
+图名：The Spoiled Heiress作者：big-n-evil<ignore_js_op>![](img/f0a54c5ad88ede2791bcc3964da29779.png)
+
+**The Spoiled Heiress.jpg** *(1.3 MB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0NTV8MDk1ZmVmODh8MTYwMzgxNzU4NnwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-3 00:24 上傳
+
+珍允的家庭非常富裕。在她的成长过程中，她可以得到她想要的一切。没有什么是她办不到的……几乎没有。这个溺爱中长大的孩子最想要的是权力。不是买东西或拥有什么的权力，她想要的是掌握他人生杀大权的最高权力。当她的父母去世后，她将她家族的巨额财富用于了技术和药品的开发，以便让她的愿望得以实现。她在这个项目中投入了数百万美元，但最终她成功了。这种血清可以给予她无限的力量，可以随心所欲地改变现实。这位娇生惯养的韩国女继承人毫不犹豫地使用了它。她将自己巨大化到比最高的人造建筑还要高的程度。在最初的激情消退之后，她决定将她的豪宅巨大化到和她一样大的尺寸。毕竟，如果她没法享受和过去一样的奢侈生活，那成为女神又有什么意义呢？她的宫殿不断变得巨大，整个首尔都因此而被摧毁了。但珍允一点都不在乎。整个世界、整个星系都是属于她的，她可以随意碾碎城市、奴役人类、收集宝物。迪拜是珍允“拜访”的第二座城市。她的豪宅突然出现，摧毁了城市的大部分区域。下面的人类还没理解发生了什么，傲慢的女神就已经大步流星地走出了家门。她打算将世界上最高的人造建筑添加到她的收藏中。不幸的是，当她试图从地基中将建筑物整个拔出时，一枚偏离了轨道的导弹分散了她的注意力，塔在她的手中拦腰折断。“好吧。”她想，“我想我可以随意重构它。但我得给这些虫子们上一课，让他们知道不要打扰我到底有多重要。”随后发生的大屠杀是人类历史上前所未有的。现在，人类恐惧地挤作一团，一座巨大的豪宅和它无情的主人随时会凭空出现。实际上，珍允拥有的不止是那栋宫殿——整个世界都属于她了。
+<title>37</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 37
+
+> [snaibgshoi 發表於 2020-10-2 21:25](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=448882&ptid=29544)
+> 感谢翻译，楼主有没有想过翻译一些漫画呢.
+
+主要是太长了，比起单图又太慢热，我怕我坚持不下来……
+<title>38</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 38
+
+图名：Towering over NY作者：big-n-evil<ignore_js_op>![](img/035362418f93f9ca53fcd9ca71b7ddea.png)
+
+**Towering over NY.jpg** *(1.07 MB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0NjV8OWZmZTQ2NzR8MTYwMzgxNzU4NnwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-3 18:33 上傳
+
+有的人认为她是来自天堂的天使；有的人认为她是个怪物；有的人认为她是某种特效或营销手段。有的人顶礼膜拜；有的人落荒而逃；有的人目瞪口呆，不知道接下来会发生什么。……只有她明白自己是什么——一位新晋女神，即将统治这个弱小的星球；只有她明白下面那些虫子的命运——在她的脚下接受永恒的奴役。她将强迫他们为她的神迹建造纪念碑，每天对它顶礼膜拜；她将强迫他们为她提供她既不需要也不在意的奢饰品，只为让他们一贫如洗；她将强迫他们像猪一样拼命繁殖，这样才能满足她贪婪地胃口；她将强迫他们注视着自己将他们的城市踩在脚下。这都是因为一个简单的理由：因为她能做到。</ignore_js_op> <title>39</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 39
+
+图名：Private tutor作者：big-n-evil<ignore_js_op>![](img/8d8e5df9dcf41b80018764060fb80487.png)
+
+**Private tutor.jpg** *(684.62 KB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0NzB8MzQzZjhiYWR8MTYwMzgxNzU4NnwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-3 18:56 上傳
+
+“现在，品尝他们。感受他们的建筑物在你的嘴里分崩离析。当它们在你的唾液里逐渐融化时，细细品味他们的身体……”父母们每次都为了让她辅导她们的女儿而支付数千美元。她的每个学生都可以担任令人嫉妒的职位，肆意蹂躏和征服其他星球。她则是所有征服者中最有名的，保持着毁灭星球数量最多的记录，连在她的同族中也拥有着可怕的名声。而现在她已经退休了，过着奢侈的生活。只有她愿意时，才会抽出一些空闲来教授她的手段。她看着跪在她面前的这个年轻女孩，如此胆小，却又充满了潜力。而她将把这个容易受到影响的少女塑造成一股恐怖的毁灭之力，将恐惧传遍整个星球。但她们的课程现在已经结束了。是时候让她支付另一部分报酬了，这是用金钱无法替代的。她会教导那些漂亮的女孩如何向那些低等生物炫耀自己的绝对权力。而现在，是时候从她的学生那里体验一部分乐趣了。</ignore_js_op> <title>40</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 40
+
+图名：Secretary after hours作者：big-n-evil<ignore_js_op>![](img/263056f36d93fb2e1fe8639c33d710f4.png)
+
+**Secretary after hours.jpg** *(703.35 KB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0NzF8MjQ0ODkyMTJ8MTYwMzgxNzU4NnwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-3 19:35 上傳
+
+当人们打算彻夜狂欢时，多半与贤善平时的娱乐方式不同。在她“真实”的生活中，她只是一个普通的秘书。她不得不面对糟糕的老板、糟糕的同事和糟糕的薪酬。但当她发现了公寓里的传送门后，一切都改变了。每天晚上，她都会脱下制服，换上一套最性感的衣服。有时是一件华丽而飘逸的红色连衣裙，有时甚至只是一件比基尼。今晚，她穿着黑色露背超短裙、渔网袜和最高的那双高跟鞋。她感觉很兴奋。每晚在另一个维度的地球疯狂破坏是她在漫长的一天工作后释放压力的最佳方式。当整支军队消失在她的脚下时，她幻想的是她那讨厌的老板；当她将整座城市夷为平地时，她想的是她那些白痴的同事。这令她的脸上浮现出一丝笑容。在那边，她只不过是小公司中的一个小螺丝；而在这里，她简直就是这些虫子们的女神。随着时间的流逝，，她想到了更残忍、更血腥、更猎奇的方式，将自己的愤怒发泄在她脚下的城市上。没有任何禁忌，没有任何怜悯。直到她透过传送门看到另一侧的时钟时，她叹了一口气。时间已经晚了，她得睡觉了，然后继续无聊的一天。她脚下的城市被时钟救了一命…………到明晚之前。</ignore_js_op> <title>41</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 41
+
+*本帖最後由 孤翼寡言的白鹭 於 2020-10-7 10:29 編輯*
+
+图名：Hostile Takeover作者：big-n-evil<ignore_js_op>![](img/d2e5bc62f12d9d85ec3216bc729294d0.png)
+
+**Hostile Takeover.jpg** *(853.93 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0NzJ8YTNlOTFiN2F8MTYwMzgxNzYzM3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-3 19:55 上傳
+
+朴秀妍在23岁时就控制了一个强大的商业帝国，她一个月赚的钱甚至比很多国家一年的收入还多。政府根本没法阻止她，她只要动动手指就可以让整个经济体系崩溃。即便她无情地将手下的工人当做垃圾一样对待，也没有任何人能反对她。但是……仍有一家公司试图反抗她。这是最后一家阻止她用经济统治世界的公司，他们是她仅存的对手。不久之前，秀妍试图对这家公司进行恶意收购。但不知为何，他们还是坚持了下来，保持着独立自主。秀妍怒不可遏，发誓要报复他们。没过多久她就有了主意。她最近“收购”的公司中有一家致力于增加生物尺寸的研发。在公式上进行调整后，秀妍的体型很快就超过了她唯一的竞争对手所在的城市。她将他们的总部从地上连根拔起，像玩具一样抛向空中。而现在，她将开始下一项恶意收购……目标是这个世界。
+
+图名：Hostile Takeover 2作者：big-n-evil<ignore_js_op>![](img/e2d1ff5fdba6fdfe2288c20b7597e28a.png)
+
+**Hostile Takeover 2.jpg** *(257.12 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU0NzN8Yjk1MmMzM2N8MTYwMzgxNzYzM3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-3 22:00 上傳
+
+秀妍，这个世界的新主人，正在检查她的新财产。她决定从华盛顿开始。毕竟，还有什么地方能比“自由世界”的前首都更让她陶醉于自己的新力量中呢？当然，既然她现在是世界的主人了，就没有所谓的“自由”了。现在每个国家、每个企业、每个人都属于她了。它们是她的财产，可以肆意摆弄和“处置”。当一队战斗机向她飞来时，她吓了一跳。她知道有些人不可避免地无法接受她成为世界的新主宰。秀妍很高兴。毕竟，她打算以新女主人的身份告诉财产们反抗的下场是什么。她打算严惩这些害虫，而还有哪里能比华盛顿特区更适合成为一个开始呢？
+
+图名：Hostile Takeover 3作者：big-n-evil<ignore_js_op>![](img/1ea9232556512cf6ab6532250481b065.png)
+
+**Hostile takeover 3.jpg** *(738.83 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1MjR8NTZkYmNhMDB8MTYwMzgxNzYzM3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-7 10:29 上傳
+
+秀妍并不是靠懒惰或无所事事而成为商业大亨的。通过把整个华盛顿夷为平地来展示她的力量后，她要做的第一件事就是巩固她的新资产。她按照新的比例重制了她那本值得信赖的账本，然后开始周游世界，检查自己的财产。她尤其注重工业，因为她要求全世界都要按照她的新尺寸为她制造新的一切。当她发现这个位于北极的寒冷城市的工厂没有遵循她的生产指令时，她很失望。他们本应该为她制作下一套性感的衣服，但恰恰相反，他们忙于为当地居民制作外套。他们恳求秀妍让他们继续。他们声称没有这些冬装，无数人都会冻死街头。秀妍根本不在乎。她不关心是否有一百万人死于她的任性要求，因为已经有更多的人死于她的脚下。她几乎感觉不到寒冷，这是她巨大化的副产物。“也许我能为你们解决这个问题。”她不怀好意地对脚下的工人们说。“你们在担心没有这些衣服，你们的家人会冻死吗？”她在这城市中坐下来，脸上洋溢着恶意的微笑。“让我帮你们修复这个错误。”她笑着用双腿扫过城市。“看到了吗？扁平的污渍不会被冻死了。现在，关于我的新衣服……”</ignore_js_op> <title>42</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 42
+
+图名：Mercenary pursuits作者：big-n-evil<ignore_js_op>![](img/c9edf5fc52d5fe1074d3b5f318e4e247.png)
+
+**Mercenary pursuits.jpg** *(1.02 MB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1Mjd8NzAxNTEzNmV8MTYwMzgxNzYzM3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-7 12:58 上傳
+
+她们是世界上最顶尖的秘密雇佣兵。她们只为出价最高的人工作，而且任务通常都是最高机密。她们的成就往往被归功于海豹突击队或英国特种空勤部队等特种兵部队，只因为她们不能暴露在公众的视野里，只有从客户那里拿到的高额酬金才能给与她们些许安慰。一切都在这一天发生了改变。一个政府雇佣她们潜入敌对政府并破坏他们的秘密武器——增长射线。目标的确被摧毁了，但却不是以她们的委托人想象的方式……这些女人“不小心”让射线命中了她们。在踩死放置这个装置的基地内的所有生物（以确保没有人能和她们一样巨大化）后，她们开始了最终的任务——以女王之姿征服这个世界。为了得到她们想要的东西，这些新女神们经历了多年的杀戮生活，这些经历让她们有着有趣的个人“癖好”。她们很快就意识到她们不再需要那些巨大化的武器了，但她们还是为了获得那些纯粹的快感而将自己的枪带在身边——例如将一个弹夹扔进一个无助的城市，或是看着建筑物在枪林弹雨中倒塌。美国试图对她们使用核武器，这是个严重的错误。作为报复，她们决定摧毁这座美国最伟大的城市。在这张照片拍摄完毕后，三个女人从她们的武器中发射出阵阵致命的子弹，公交车大小的金属块在纽约呼啸而过，造成了难以想象的破坏。当她们的弹夹都射空后，三个女人都因为亲手杀死了这么多人的这种纯粹的快感而气喘吁吁。当然，她们用完了弹药，真正的乐趣就要开始了……</ignore_js_op> <title>43</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 43
+
+图名：The Lost armada作者：big-n-evil<ignore_js_op>![](img/1009831100caed823876c8599c112351.png)
+
+**The Lost armada.jpg** *(597.76 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1Mjh8MWVjMWFjNGN8MTYwMzgxNzYzM3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-7 13:48 上傳
+
+这不是“通讯错误”。五角大楼和白宫都不知道他们的舰队去哪了。就在刚才，它们还在向着朝鲜的战区驶去。然后——它们消失了。没人会想到它们已经遭到了朝鲜秘密武器的袭击。整支舰队都被缩小并传送到了朝鲜。这支无力的舰队被瓜分，作为战利品和奖赏分发给了将军、部长和科学家们。作为旗舰的航空母舰被赠予了这个项目的首席科学家，他立刻把它送给了他那被宠坏了的宝贝女儿。这艘曾被美国引以为傲的舰船，现在只不过是一个被从小就教育要憎恨美国和美军的女人的玩具。她决定如何以最好的形式玩弄这首舰船时，对它并不温柔。但是想到要这么快就把这个独特的玩具玩坏，她还是有点纠结。然后她想起了父亲对她的承诺。很快，整个首尔都将跪倒在她的脚下。然后是美国。</ignore_js_op> <title>44</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 44
+
+图名：My slave, the goddess作者：big-n-evil<ignore_js_op>![](img/e1cb0c144aad15422eba9c5afe113836.png)
+
+**My slave, the goddess.jpg** *(922.33 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1MzB8ZTUzYzVhNDB8MTYwMzgxNzYzM3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-7 14:46 上傳
+
+当你驾驶着直升飞机在城市高空中盘旋时，索伊的双眼茫然地看着你，思考着你巨大的成功。这中药剂的效果远超你的想象，只可惜无法对男性生效。即使是直升机螺旋桨的噪音也无法完全掩盖下方的人发出的尖叫声，索伊巨大的身体碾平了附近的人类、汽车和建筑，令他们惊慌失措的四处逃窜。你听着他们惊恐的尖叫，如同在品味美酒——这不过是即将发生的好戏的开场。“主人？”她温柔的声音在你的脑内回荡，“您希望你的奴隶做什么？”索伊自称为你的奴隶并不夸张。你花了一整年的时间将她塑造成了对你绝对服从的人。在绑架她后，你将她关进了你豪宅的地下室里。你日复一日地探索她的思维、摧毁她的人格，取而代之的是顺从和忠诚。很快，她就变成了一个空壳——成为了你意志力的延伸。即使最微小的反抗想法也从她的脑海中消失了。她存在的唯一原因就是服侍你、取悦你；没有其他任何事能带给她乐趣，没有其他任何事能吸引她的注意。当然，在给予她无所不能的力量之前，你已经准备了最终的保险措施。她脖子上的项圈给予了你一个完美的心灵控制能力——可以直接对她进行控制。你毕竟没有那么愚蠢，在可以完全控制一个奴隶之前就给予她绝对的力量。你下达了你期待已久的命令：“征服他们的世界。粉碎他们的军队，摧毁他们的反抗意志。你要从肉体和灵魂两方面支配他们，就像我支配你一样。”“遵命，主人。”她回答道。这就是你唯一想听到的答案。</ignore_js_op> <title>45</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 45
+
+图名：Bored goddess作者：big-n-evil<ignore_js_op>![](img/a2b90d542c78137b023dda5908e64a96.png)
+
+**Bored goddess.jpg** *(250.98 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1MzJ8NGM4ZGFjMTZ8MTYwMzgxNzYzM3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-7 16:37 上傳
+
+呼。不知道她是从哪里出现的，站立在整个城市之巅。那些不幸位于她出现位置的建筑物瞬间被她那几百英尺高的高跟鞋摧毁。她轻轻跺了跺脚，周围的建筑就全部坍塌了。她看着脚边灰色和棕色相间的“地毯”，轻蔑地叹了一口气。就在不久之前，她还是一场恋物癖大会的明星。那个人满为患的恋物癖会场，现在只不过是她鞋底的一个污点。人们付给她一大笔钱以求死在她的脚下。好吧，只要他们喜欢就行。嗯……只要他们喜欢。实际上，她根本不需要钱。世界上的各国政府给予了她所有她想要的东西，试图让她开心，尝试让她保持人性。注意，是“尝试”。他们无法阻止她，她想长得多大就可以长得多大，想什么时候长大就什么时候长大。他们用子弹、炸药或任何大小的导弹都无法阻止她。无论从哪个角度来说，她都是不可战胜、不可阻挡的存在。当她第一次发现自己的力量时觉得很有趣。她征服的第一个镇子、第一个城市、第一个国家对她来说都是令她激动不已的里程碑。而现在，许多年过去了，她已经厌倦了她的生活。对于一个一切欲望都得到了满足的女人来说，对于一个让每个男人或女人因恐惧或迷恋而对她俯首帖耳的女人来说，生活已经没有任何的挑战和激情了。现在她已经变得这个大了，她想还是应该把这个城市夷为平地。毕竟，一次粗暴地毁灭是一种打发时间的好方法。许多年前，数百万人因她享受残忍和虐待的恶意而死；现在，数百万人又将因她无法忍受的无聊和厌倦而死。对于即将发生的事，她并不感到兴奋；但对于这个不幸的城市里惊慌失措的居民来说，这并不能让他们安心。</ignore_js_op> <title>46</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 46
+
+图名：Wrong shoes for the job作者：big-n-evil<ignore_js_op>![](img/a0ac06a6bf533698b8efa7fc84996e54.png)
+
+**Wrong shoes for the job.jpg** *(806.58 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1MzN8YjQ4ODUwZWF8MTYwMzgxNzYzM3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-7 16:51 上傳
+
+她不敢相信自己竟然如此粗心。她穿越了几千光年来到这里，却忘了带双合适的鞋！当然，这双高跟鞋的确很性感。但鞋跟和鞋底之间的空隙大到让她的每一步都无法完全踩扁脚下的城市。她或许要煞费苦心地花费几个星期，才能将这个讨厌的小小文明铲除了。当她试着精确地清除了一座城市后，她重新考虑了自己是否真的需要“附带伤害最小”的奖金。她很快就打定了主意，更改了放大射线上的仪表盘……接管殖民地的定居者只需要在更深的坑上重新铺路就好了……</ignore_js_op> <title>47</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 47
+
+图名：Twisted Vengeance作者：big-n-evil<ignore_js_op>![](img/ec6f31eb9fe44c11128a9a55e03c9792.png)
+
+**Twisted Vengeance.jpg** *(872.33 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1MzR8ZjZmMGI4NzJ8MTYwMzgxNzYzM3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-7 17:23 上傳
+
+她是她父亲向全世界复仇的工具。他是一位很有名望的科学家，由于他的发明而极度富有。即便如此，他也没法阻止他的妻子因不治之症而日渐消瘦。他绝望地对她进行了实验性的治疗手段，因此受到了全世界科学界的谴责和排斥。他被迫和她的女儿以及仆人隐居在他的豪宅里。随着时间的流逝，他对整个世界的憎恨和扭曲的看法影响了她。她开始对她父亲憎恶的社会采取行动——虐待她的仆人和家教。当她的虐待欲不断膨胀时，一个计划在他的脑海中形成了。当她将一个将茶洒在她最喜欢的裙子上的新来的女仆虐待致死时，他的父亲确定她已经准备好接受他为之奋斗了十年的这项发明了。他要求她好好地打扮一下自己，因为他们要庆祝一个特殊的日子。当她穿着紧身的黑色礼服走进餐厅时，他告诉了她这个特殊的日子就是她即将成神的日子。他发明了一种药剂，可以让她将整个世界都屈从于她的想法——实现她的幻想，将这个伤害了她的家庭的社会粉碎在她的脚下。她毫不犹豫地喝下了整瓶药剂。几秒后，她的身体开始膨胀。餐厅里那些不幸的管家和女仆是她的第一批受害者——对于之后的数十亿人来说。当她的身体填满了整栋房子时，她将她的父亲传送到了一个安全、视野开阔的高处。在那里，他可以看到自己计划的最终成果；在那里，他可以看着世界在新女神——一个由他亲手创造的施虐怪物脚下受苦。她环视着脚下的城市，转了转眼珠。她已经看到了一个全人类都臣服于她铁腕统治的未来。但首先，她要先从将腐朽的人类社会变成废墟的过程中找点乐子。</ignore_js_op> <title>48</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 48
+
+图名：Shush!作者：big-n-evil<ignore_js_op>![](img/930d5cf276d87a11c55f3e087c3e20d0.png)
+
+**Shush!.jpg** *(749.04 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1MzV8NjlhNzYxMjF8MTYwMzgxNzYzM3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-7 17:40 上傳
+
+“嘘，小虫子们。你应该为自己能被新女神使用而感到荣幸……”那个身材高大的女孩用嘲讽地语气安慰着他们。“嘻嘻，我从未见过这么大的建筑。我等不及要试试我的新玩具了。”她听到东京天空树内发出更大声的尖叫时，咯咯地笑了。接下来发生的是一场堕落的肉体狂欢。这使得这个地标建筑变成了一片废墟，而东京周边在几年内都是一片洪水泛滥、、泥泞不堪、气味刺鼻、混乱不堪的景象。人类所能做的只有忍耐和重建。当她环游世界，寻找更好更新的“玩具”时，他们无力抵抗。</ignore_js_op> <title>49</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 49
+
+图名：New teachers作者：big-n-evil<ignore_js_op>![](img/b1a8438273b133aed5e481b4684d2e28.png)
+
+**New teachers.jpg** *(1.07 MB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1MzZ8M2E5MDZhNjB8MTYwMzgxNzYzM3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-7 19:06 上傳
+
+她们之间的关系是禁忌的——女人和少女。一开始，她们隐藏了对对方强烈的爱。但是人们还是发现了她们之间的关系，对她们进行了羞辱和惩罚。尽管困难重重，这对恋人之间的爱还是和她们对世人的憎恨一般不断加深。直到那一天，一切都改变了。那可能是一个疯狂科学家、神明或是神灯什么的造成的结果，没有人知道真相。重要的是，这两个女人现在宛如神明一般，除了彼此对任何人都冷酷无情。她们没有浪费任何时间，立刻开始利用起她们的新力量。在几个月时间里，她们用性爱和暴力的狂欢将人类几乎逼向了灭绝的境地。但这一切并没有就此结束。她们利用她们那无所不能的力量复原了人类和人类的城市，甚至还有之前暴行的记忆。她们从容不迫地再次将痛苦和折磨施加给过去对她们施加了暴行的人。特别的，她们对于自己能想到的每一个禁忌都嗤之以鼻。她们用最肮脏的方式亵渎了圣地。她们强迫家人之中选择一人来填饱她们饥饿的胃。但是，她们最大的乐趣还是重犯那些令她们被社会歧视的禁忌。尽管她们的穿着和过去不同，但她们都不是学生。相反，她们都是老师：教导人类痛苦和折磨的真正含义。一次又一次，只要人类的新老师愿意重复下去。</ignore_js_op> <title>50</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 50
+
+图名：Eldritch Goddess作者：big-n-evil<ignore_js_op>![](img/2360493afe3f0cf498da04192b145301.png)
+
+**Eldritch Goddess.jpg** *(292.6 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1Mzd8N2JlOGM4NDR8MTYwMzgxNzYzM3wxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-7 19:42 上傳
+
+这是她第五次毁灭人类后又将人类复原了，附带着她将人类城市残忍毁灭的记忆。有一段时间，她已经几乎完全摧毁了我们整个物种的思想和精神，让我们务实地退缩，明白自己没有任何希望去阻止她——就像洛夫克拉夫特小说中的神明那样。这一次，世界上的大多数人都明白了她的意思，最多只有几个人——例如那些小小的战斗机继续着无望地抵抗，而她对此不屑一顾。她叹息着，决定让人类继续进行下一个死亡和复原的循环。毕竟，她的时间和她的力量一样无穷无尽。“你们应该感到高兴……”当导弹和炮弹从她那完美的皮肤上反弹时，她想，“……至少我看起来比克苏鲁好看多了。”</ignore_js_op> <title>51</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 51
+
+图名：Moral dilemma作者：big-n-evil<ignore_js_op>![](img/9b3b4125d57cb75c25890621fa8fc303.png)
+
+**Moral dilemma.jpg** *(1.38 MB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1NDN8YjNkOTFmNmF8MTYwMzgxNzY4NXwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-7 21:52 上傳
+
+高银一致认为自己是个好人。她认真纳税，遵守规则，对周围的人充分给予友善和尊重。她甚至不会伤害一只苍蝇，更别提伤害一个人了。那一天，当她醒来时，一切都改变了，她发现她和她的房子已经巨大化到了令人难以置信的大小。她打开前门，发现她家所在的城市像地毯一样铺在她的脚边。她惊慌失措地退回了家里。几个星期、几个月过去了，外面的小人们都在试图安抚和迁就她，并为她的家提供了电力、干净的饮水，甚至是食物和生活用品。高银一开始很高兴，因为她没有伤害到任何人，而且大家都在设法帮助她。但随着日子一天天过去，她开始感到厌倦了，而她能做的只有躺在沙发上看电视。不出所料，她在媒体上和现实中都是名人。某一天，当她随意浏览节目时，她偶然发现有些专家手舞足蹈地惊呼她是一个危险的人——一个随时可以摧毁和奴役人类的怪物。她对这个说法异常恼火，只把它当做小丑博得观众喝彩的胡言乱语藏在了心底。那晚，她做了一生中最疯狂的一个梦。在梦中，她站在一座沦为焦土的城市上方，双手叉腰，看着一大群蚂蚁大小的人类试图在她的高跟鞋下逃走。她狠狠地瞪着在梦中将脚踩在一大群人上面的自己。她清晰地听到了当自己的鞋子将那些人变成一团肉泥时他们发出的痛苦尖叫。然后，她又命令其他的四散逃跑的人将她的鞋底舔干净，而她则愉悦地看着那些逃跑的虫子转身爬过来开始舔食它们以前的朋友、家人和同胞的残骸。当她醒来时，发现自己的床单已经被冷汗浸湿了——还混合着一种更私密的液体。她试图平息内心的冲动，她是个好人，再巨大的体型或力量也不会改变这一点。但是接下来的几个星期里，她的脑子里除了如何杀戮、折磨和征服她以前的同类以外什么也想不到。每晚她都幻想着将整座城市在她的乳房或是脚下碾碎，并强迫整个星球的居民理所当然地侍奉她。一个月过去了，她再也无法压制心中的欲望了。她换上了自己最漂亮的衣服——对得起自己登上神位——自此，她第一次离开了家门，走了几步。她在无法回头前蹲了下来。如果她继续这么做，那么她将成为人类历史上最伟大的暴君和屠杀者。高银看向天空，想知道她是否会得到神诣。但她听到的只有脚下传来的惊恐的哀嚎声。这就是她的神诣。她已经做出了决定。
+<title>52</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 52
+
+图名：Maid to suffer作者：big-n-evil<ignore_js_op>![](img/db4515b2d2219fdd14abbfe57acd90d0.png)
+
+**Maid to suffer.jpg** *(1.75 MB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1NTF8YjAzNWEzNWV8MTYwMzgxNzY4NXwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-7 23:27 上傳
+
+一言以蔽之，珍妮弗的女主人就是个被宠坏了的孩子。作为一个继承了巨额财富的女继承人，她从未听说过“不”这个词。她父亲像对待公主那样对待她，满足她每一个任性的想法。当她出现了一种对体型差和对掌控人类生死大权的迷恋时，他完全没有道德上的顾虑，斥巨资支持这项技术的发展，以允许她实现她的幻想。她的女主人是个喜新厌旧的人，爱好只存在短短的一阵子。她很快就会厌倦，经常抛弃那些只玩了几分钟的缩小城市或世界，然后再找一个新的不幸的城市去统治和屠杀。理所当然，为这样一个任性的公主工作并不愉快。但对于珍妮弗来说，在女主人结束游戏后“打扫干净”这一宝贵的任务足以让她咬牙忍耐女主人的坏脾气。今天对于珍妮弗是特别的一天。她的女主人很快就厌倦了在这个世界上的破坏行为，告诉她“把它们全杀了或者随便你怎么处理”。珍妮弗扫视了一下这个世界，它基本还完好无损，大多数主要城市都保存着原貌。除了留下了一些靴子印和……体液的倒霉地方，这个世界堪称完美。她微笑着使用了她个人的体型改变装置，让自己的体型比起她的女主人常用的体型更容易控制。即便如此，她也绝对是这个世界上现存的最巨大的存在。珍妮弗情不自禁地笑了，脑海中浮现出各种可能性。也许她会及时地毁灭这个世界，但在那之前，她还有一些其他的想法。她回想起女主人过去对她的每一次发脾气、羞辱和嘲笑。这位女仆女神迫不及待地要将这些在这个世界上无力的居民身上加倍奉还。</ignore_js_op> <title>53</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 53
+
+图名：A qualified success作者：big-n-evil<ignore_js_op>![](img/5c189e7820ebf942637d4497938854cc.png)
+
+**A qualified success.jpg** *(252.5 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU1NTJ8MmJjOTZmYWR8MTYwMzgxNzY4NXwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-8 00:17 上傳
+
+她一直对自己的胸围感到不满。不论男女都对她苗条的身材和“一米长腿”赞誉有加，但这还远远不够。她一直想让自己拥有一个完美的胸部来丰满她的身材。多年以来，她一直压抑着自己的不安，但当她那卑鄙的前男友跟一个巨乳妞出轨后，这成为了压倒骆驼的最后一根稻草。她从不放弃报复。她竭尽全力地获得了一种实验性的成长霜。如果那个混蛋想要巨乳，她就要用他见过的最大的胸部甩他的脸！为了达成这个目的，她买了一套新内衣，然后在乳房上涂满了成长霜，之后突然昏了过去。当她醒来的时候，她非常失望地发现自己的胸部和以往一样大……相对于她的体型来说。过了一会，她才发现自己沉进了周围的地面。和她脚下的小城市比起来，她的腿得有好几千米长了。他并没有得到自己想要的东西，但这是个很好地赠品。在这个尺寸下，强迫自己的前男友崇拜她的脚简直轻而易举。而在那之后，又会有数百万人向她臣服……</ignore_js_op> <title>54</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 54
+
+图名：The Goddess's new pants作者：big-n-evil<ignore_js_op>![](img/b0c48bc51f697a8bbec34ecef045d07a.png)
+
+**The Goddess's new pants.jpg** *(1.5 MB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU2MTJ8NTVkMmRiZWN8MTYwMzgxNzY4NXwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-11 10:19 上傳
+
+她低下头看着自己的新裤子和脚下那空荡荡的城市，感到十分满意。她最近才发现，她不仅仅拥有成长为泰坦般的体型的能力。最令她陶醉的能力就是强迫她的奴隶们完成她的任何命令，甚至可以无视他们自身的伦理观、道德观和自我保护意识。最近，她热衷于去反复测试这种“说服”能力的极限。她命令全城的人为她制作一条新的皮裤。这并不稀奇——她经常强迫她的奴隶为她制作新衣服。然而，这次却有所不同。她要求用人类的皮制作原料。确切的说，是要求这个城市的居民要活剥了对方的皮，这样每个人都能充分地体验到自己给予他们的痛苦与折磨了。几个小时之内，这座伟大的城市就沦为了一个人类屠宰场。街道上充满了受尽折磨的人类被活活剥皮时发出的痛苦惨叫，地面血流成河。几天以来，她一直沉浸于自己制造的痛苦与折磨之中，直到一切都结束了。这座百万人口的城市，如今只剩下几千名专业皮革工人了。她如今只有一个想法——“要制作出全套的服装需要几个城市？”</ignore_js_op> <title>55</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 55
+
+图名：End of the Cycle作者：big-n-evil<ignore_js_op>![](img/dcde21afbafc151c484f1fb04418e648.png)
+
+**End of the Cycle.jpg** *(168.04 KB, 下載次數: 0)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU2MTN8MTNhZjUzNmZ8MTYwMzgxNzY4NXwxODIzMHwyOTU0NA%3D%3D&nothumb=yes)
+
+2020-10-11 14:07 上傳
+
+对于所有了解她们的人来说，她们仅仅是一对聪明、、温柔、优雅、善良、勤奋的室友而已。她们很受朋友、家人和同事的喜爱。没有任何人知道这两位美女不是地球人、不是银河系的人，甚至不是来自这个位面的存在。对她们来说，人类只不过是卑贱而可怜的生物——他们对自己生活的宇宙一无所知。而这也让人类不幸地成为了这两位外太空女神的完美玩具。她们反常地喜欢在人类中生活：假装自己和他们一样软弱无力。而当她们开始折磨身边的人时，一切就会变得有趣起来——缩小并踩扁她们的老板、吃掉她们的“家人”，把她们的“朋友”变成有感知却无法动弹的物体，以及她们任何能想到的扭曲想法。她们总是在结束游戏后重置现实：这是为了掩盖证据，以确保有足够的玩具供她们玩耍。然而即便是拥有无限力量的永恒存在，也会厌倦一次又一次使用同样的玩具。在这一天下班回家后，她们决定换一个新的玩具盒。她们连制服都没换，不停成长直到城市如同她们脚下的一块地毯。她们先是互相爱抚着玩了一会——为即将到来的大屠杀做好前戏。对于如何使用她们无所不能的力量毁灭这个弱小的星球，她们都积累了很多想法。而且这一次，不会再重置了。</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>
