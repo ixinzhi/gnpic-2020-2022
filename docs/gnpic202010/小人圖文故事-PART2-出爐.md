@@ -4,19 +4,21 @@
 
 TID：19091
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 可能照片還是有點小 請見諒^^
+
 (希望懇求 獎勵點的鼓勵 讓我有動力繼續畫下去 )
 
 拜託拜託>Q<![](static/image/smiley/bigface/64.gif)![](static/image/smiley/bigface/5.gif)
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[B612-2015-06-01-08-38-02.jpg](forum.php?mod=attachment&aid=NTIyMDR8MzFkMTc1NWN8MTYwMzg1ODM3M3wxODIzMHwxOTA5MQ%3D%3D&nothumb=yes) *(687.21 KB, 下載次數: 40)*
+<ignore_js_op>[B612-2015-06-01-08-38-02.jpg](forum.php?mod=attachment&aid=NTIyMDR8MzFkMTc1NWN8MTYwMzg1ODM3M3wxODIzMHwxOTA5MQ%3D%3D&nothumb=yes) *(687.21 KB, 下載次數: 40)*
 
 [下載附件](forum.php?mod=attachment&aid=NTIyMDR8MzFkMTc1NWN8MTYwMzg1ODM3M3wxODIzMHwxOTA5MQ%3D%3D&nothumb=yes)
 

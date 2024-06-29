@@ -4,35 +4,39 @@
 
 TID：26404
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 sjwsfans 於 2019-6-25 18:55 編輯*
 
 大家好，我是sjwsfans，一名gts爱好者，入圈大概七八年了吧，一直当一个伸手党，怪不好意思的。
+
 这些年也算是阅图无数了，gb,d站上的collage基本上看个遍了。看我的昵称就知道我是sjw大神的粉丝，其实不只是他，wonderslug,docop,analternateusername包括也在gn活跃的kyojingirls都是我崇拜的大神。我个人很偏爱巨大的真人合成图。学了一点PS但是个人能力实在有限，水平忽高忽低（高也没高到哪去）到现在也做了不少图了，发出来给大家看看，希望大神们给点意见和建议。就这样！先来张沈梦辰给大家发个红包啦
+
 （图片素材大部分源于微博，侵删）
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[沈梦辰7.jpg](forum.php?mod=attachment&aid=NzY0NDJ8MDJiYzUyZWJ8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes) *(803.53 KB, 下載次數: 3)*
+<ignore_js_op>[沈梦辰7.jpg](forum.php?mod=attachment&aid=NzY0NDJ8MDJiYzUyZWJ8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes) *(803.53 KB, 下載次數: 3)*
 
 [下載附件](forum.php?mod=attachment&aid=NzY0NDJ8MDJiYzUyZWJ8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes)
 
 2019-2-10 00:08 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![沈梦辰7.jpg](img/2425cf7eecf7d3fa79f8420c144e0d64.png "沈梦辰7.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![沈梦辰7.jpg](img/2425cf7eecf7d3fa79f8420c144e0d64.png "沈梦辰7.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 先把早期的发一下吧，当时水平还比较菜，好的咱们留到后面![](static/image/smiley/bigface/53.gif)
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 4
 
- <ignore_js_op>[沈梦辰2.jpg](forum.php?mod=attachment&aid=NzY0NDl8ZTZiMTZjOWV8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes) *(497.4 KB, 下載次數: 2)*
+<ignore_js_op>[沈梦辰2.jpg](forum.php?mod=attachment&aid=NzY0NDl8ZTZiMTZjOWV8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes) *(497.4 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=NzY0NDl8ZTZiMTZjOWV8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes)
 
@@ -62,17 +66,19 @@ TID：26404
 
 2019-2-10 00:24 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![林志玲.jpg](img/e26101b20fa578e412eb1e11fcf15c83.png "林志玲.jpg")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![林志玲.jpg](img/e26101b20fa578e412eb1e11fcf15c83.png "林志玲.jpg")](javascript:;)</ignore_js_op>  
 
 # 5
 
 再来几张～后面有的图会配几句文字，我个人比较喜欢故事性的图还有一点细节控，有的图放大会有彩蛋哦![](static/image/smiley/bigface/68.gif)
+
 （手机传图真的太费劲了55555）
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 6
 
- <ignore_js_op>[张靓颖.jpg](forum.php?mod=attachment&aid=NzY0NjZ8MTNlZjMwY2V8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes) *(666.46 KB, 下載次數: 0)*
+<ignore_js_op>[张靓颖.jpg](forum.php?mod=attachment&aid=NzY0NjZ8MTNlZjMwY2V8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes) *(666.46 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=NzY0NjZ8MTNlZjMwY2V8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes)
 
@@ -108,32 +114,39 @@ TID：26404
 
 2019-2-10 16:05 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![刘亦菲.jpg](img/9b123badc94d7d8113ccf95455797daf.png "刘亦菲.jpg")](javascript:;)</ignore_js_op> <title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![刘亦菲.jpg](img/9b123badc94d7d8113ccf95455797daf.png "刘亦菲.jpg")](javascript:;)</ignore_js_op>  
 
 # 7
 
 > [Courage 發表於 2019-2-10 03:09](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=396843&ptid=26404)
+
 > p到天安门总感觉很出戏
 
 hhhhhh刚开始玩在网上瞎找的素材
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 8
 
 > [wdz1995714 發表於 2019-2-10 00:49](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=396830&ptid=26404)
+
 > 支持支持不错不错，加一点破坏的效果就更好了
 
 我也很喜欢破坏系但是能力实在有限，加的效果太容易出戏了，最多也就加点裂缝和烟雾了![](static/image/smiley/bigface/62.gif)
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 9
 
 > [freelycat 發表於 2019-2-10 17:29](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=396903&ptid=26404)
+
 > 如果是吹毛求疵的話，個人覺得問題如下，歡迎各位拍磚/討論
+
 > 第一張沈大小姐的旗袍腿部邊緣摳圖的顆粒感有點 ...
 
 谢谢亲，我会努力改进的![](static/image/smiley/bigface/58.gif)
-<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 10
 
@@ -145,24 +158,27 @@ hhhhhh刚开始玩在网上瞎找的素材
 
 2019-2-11 01:00 上傳
 
-<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 11
 
 > [kyojingirls 發表於 2019-2-11 09:00](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=396976&ptid=26404)
+
 > 图片都已经有这么好的感觉，看起来sjwfans的PS力越来越好。支持你做多女巨人的照片，我也期待你的新品发布 ...
 
 Wow I'm so excited![](static/image/smiley/bigface/65.gif)thanks for supporting,I'll continue to work harder！And I love your masterpieces very very much！
-<title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 12
 
 好激动啊啊啊啊啊被大神回复的感觉真爽～
-<title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 13
 
- <ignore_js_op>[奇爱大师.jpg](forum.php?mod=attachment&aid=NzY0NzV8Zjk2MGIyYTR8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes) *(218.44 KB, 下載次數: 5)*
+<ignore_js_op>[奇爱大师.jpg](forum.php?mod=attachment&aid=NzY0NzV8Zjk2MGIyYTR8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes) *(218.44 KB, 下載次數: 5)*
 
 [下載附件](forum.php?mod=attachment&aid=NzY0NzV8Zjk2MGIyYTR8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes)
 
@@ -186,28 +202,31 @@ Wow I'm so excited![](static/image/smiley/bigface/65.gif)thanks for supporting,I
 
 2019-2-11 11:05 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![杨幂.jpg](img/f41b502b383e639a493971f2f6be06f5.png "杨幂.jpg")](javascript:;)</ignore_js_op> <title>14</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![杨幂.jpg](img/f41b502b383e639a493971f2f6be06f5.png "杨幂.jpg")](javascript:;)</ignore_js_op>  
 
 # 14
 
 来一张上海百年的变化
-<title>15</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 15
 
- <ignore_js_op>[迪丽热巴2.jpg](forum.php?mod=attachment&aid=NzY0NzZ8MjNjMTc5OTd8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes) *(189.75 KB, 下載次數: 4)*
+<ignore_js_op>[迪丽热巴2.jpg](forum.php?mod=attachment&aid=NzY0NzZ8MjNjMTc5OTd8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes) *(189.75 KB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=NzY0NzZ8MjNjMTc5OTd8MTYwMzgzNTIyNXwxODIzMHwyNjQwNA%3D%3D&nothumb=yes)
 
 2019-2-11 11:08 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![迪丽热巴2.jpg](img/9415e8d665b162cda9d3005773654234.png "迪丽热巴2.jpg")](javascript:;)</ignore_js_op> <title>16</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![迪丽热巴2.jpg](img/9415e8d665b162cda9d3005773654234.png "迪丽热巴2.jpg")](javascript:;)</ignore_js_op>  
 
 # 16
 
 很对不起大家好久都没在这更新，VPN实在是太差了图片上传很难很难所以我就在贴吧更了。如果大家可以进的话就去贴吧看看吧，如果进不去贴吧那我也很遗憾了（真的很想跟大家分享我的作品嗷）
+
 贴吧链接：ht嗯tp://ti什eba.b么aidu.com/p/603叫6221没029?share=9105&有fr=share&s权ee_lz=0&sfc=c限opy&client_type=2&cli上ent_ver传sion=10.0.8.4&st=155链2668569&unique=1BF4接890055E20251CE啊0B6D575D275ECB
-<title>17</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 17
 
@@ -237,11 +256,12 @@ Wow I'm so excited![](static/image/smiley/bigface/65.gif)thanks for supporting,I
 
 好像可以哦
 
-<title>18</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 18
 
 再来三张![](static/image/smiley/bigface/68.gif)
+
 <ignore_js_op>![](img/0248c0962cf9199cfab1c5bf856c0026.png)
 
 **江疏影.jpg** *(932.22 KB, 下載次數: 3)*
@@ -266,12 +286,14 @@ Wow I'm so excited![](static/image/smiley/bigface/65.gif)thanks for supporting,I
 
 2019-5-10 09:58 上傳
 
-<title>19</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 19
 
 55555555555贴吧帖子被删了，现在觉得没有一个好点的环境适合发图啊。GN被墙 感觉图片区人不是很多；贴吧帖子被删了而且感觉贴吧里大部分都是小屁孩，搞得一些东西感觉莫名的幼稚；微博没人理会就别提了。想来想去这些图也不能白做了，赶上这一阵子VPN挺好，在这都给大家放出来吧。毕竟这还能得到大佬的夸奖嘻嘻。
- 另外强调一下，为了发着方便，我就不对照原来发过的那些图了，直接从文件夹里一个个传了。所以有和楼上重复的图敬请谅解哦~
+
+另外强调一下，为了发着方便，我就不对照原来发过的那些图了，直接从文件夹里一个个传了。所以有和楼上重复的图敬请谅解哦~
+
 <ignore_js_op>![](img/e270e9cbb6e3f675adfca5614c3169fc.png)
 
 **金晨2.jpg** *(451.69 KB, 下載次數: 2)*
@@ -314,20 +336,23 @@ Wow I'm so excited![](static/image/smiley/bigface/65.gif)thanks for supporting,I
 
 一天就能传20M啊..........行吧行吧那明天见咯
 
-<title>20</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 20
 
 emmmm帖子标题是这么改吗？![](static/image/smiley/bigface/9.gif)
-<title>21</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 21
 
 > [sjwsfans 發表於 2019-6-22 21:31](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=408033&ptid=26404)
+
 > emmmm帖子标题是这么改吗？
 
 啊哈我会啦！不好意思不好意思，不太会玩，让各位见笑了![](static/image/smiley/bigface/7.gif)
-<title>22</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 22
 
@@ -381,19 +406,22 @@ emmmm帖子标题是这么改吗？![](static/image/smiley/bigface/9.gif)
 
 [下載附件](forum.php?mod=attachment&aid=Nzg5MjJ8YWM1ZGEwMmJ8MTYwMzgzNTMwMnwxODIzMHwyNjQwNA%3D%3D&nothumb=yes)
 
-2019-6-23 23:35 上傳</ignore_js_op></ignore_js_op> <title>23</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+2019-6-23 23:35 上傳</ignore_js_op></ignore_js_op>  
 
 # 23
 
 > [xnr 發表於 2019-6-23 01:13](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=408050&ptid=26404)
+
 > 秦岚和缩小北京市那张最好，真实感强，细节也很丰富，互动也很真实自然，期待背景故事 ...
 
 嘻嘻嘻谢谢前辈夸奖哦，我p图追求的就是真实和故事性。不过背景故事还是交给别人吧，我是真的不适合写文......![](static/image/smiley/bigface/62.gif)
-<title>24</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 24
 
 一个好消息和一个坏消息：好消息是我开始在D站发图了（昵称“megaloverCN”）坏消息是两边一发图脑子乱的一批，哪些发过哪些没发过都不记得了......
+
 <ignore_js_op>![](img/f0d5aeaf0c74e14f3da250eaa2b66498.png)
 
 **刘芸.jpg** *(542.46 KB, 下載次數: 3)*
@@ -474,7 +502,7 @@ emmmm帖子标题是这么改吗？![](static/image/smiley/bigface/9.gif)
 
 2019-6-24 18:04 上傳
 
-<title>25</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 25
 
@@ -558,7 +586,7 @@ emmmm帖子标题是这么改吗？![](static/image/smiley/bigface/9.gif)
 
 2019-6-25 18:51 上傳
 
-<title>26</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 26
 
@@ -602,11 +630,12 @@ emmmm帖子标题是这么改吗？![](static/image/smiley/bigface/9.gif)
 
 2019-6-25 18:54 上傳
 
-<title>27</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 27
 
 > [sjw 發表於 2020-2-23 23:35](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=427683&ptid=26404)
+
 > 比不上朕，但也很好了~
 
 哈哈哈哈哈哈哈哈哈哈哈哈哈哈被大佬挖坟了感觉好棒![](static/image/smiley/bigface/53.gif)大佬你去D站看看吧这里的几张图太寒碜了D站新发的比这好点![](static/image/smiley/bigface/52.gif)</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

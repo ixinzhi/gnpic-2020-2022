@@ -4,15 +4,15 @@
 
 TID：13642
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-槗樑當作catwalk<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+槗樑當作catwalk 
 
 # 2
 
- <ignore_js_op>[chong.jpg](forum.php?mod=attachment&aid=MzE3Nzh8YmVmMjczZDV8MTYwMzg3NDQzMHwxODIzMHwxMzY0Mg%3D%3D&nothumb=yes) *(318.17 KB, 下載次數: 20)*
+<ignore_js_op>[chong.jpg](forum.php?mod=attachment&aid=MzE3Nzh8YmVmMjczZDV8MTYwMzg3NDQzMHwxODIzMHwxMzY0Mg%3D%3D&nothumb=yes) *(318.17 KB, 下載次數: 20)*
 
 [下載附件](forum.php?mod=attachment&aid=MzE3Nzh8YmVmMjczZDV8MTYwMzg3NDQzMHwxODIzMHwxMzY0Mg%3D%3D&nothumb=yes)
 

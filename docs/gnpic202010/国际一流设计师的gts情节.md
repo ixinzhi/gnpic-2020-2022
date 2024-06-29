@@ -4,16 +4,17 @@
 
 TID：18067
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 第一次发贴，好激动啊
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[014804zq0uwz508okozofo.jpg](forum.php?mod=attachment&aid=NDgzMDd8Y2FkMjJhZjZ8MTYwMzg2NjI3MXwxODIzMHwxODA2Nw%3D%3D&nothumb=yes) *(184.42 KB, 下載次數: 46)*
+<ignore_js_op>[014804zq0uwz508okozofo.jpg](forum.php?mod=attachment&aid=NDgzMDd8Y2FkMjJhZjZ8MTYwMzg2NjI3MXwxODIzMHwxODA2Nw%3D%3D&nothumb=yes) *(184.42 KB, 下載次數: 46)*
 
 [下載附件](forum.php?mod=attachment&aid=NDgzMDd8Y2FkMjJhZjZ8MTYwMzg2NjI3MXwxODIzMHwxODA2Nw%3D%3D&nothumb=yes)
 

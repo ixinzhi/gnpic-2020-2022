@@ -4,13 +4,14 @@
 
 TID：9162
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 Hello again. I just wanted to take the time now to explain some questions so of you had.
 
 First I want to thank everyone for the support and for all those that wished me a happy birthday. I really appreciate that.
+
 As most of you know, I am a foreigner, form America to be exact. I don't really know any Chinese at all so I use the Google Translate engine to read you text and to translate mine out of respect for this site.
 
 I try to read every post on my topics and I caught some other questions.
@@ -28,6 +29,7 @@ I think that pretty much it. So I hope you all enjoy this bundle I made. Sorry b
 你好了。我只是想利用现在的时间来解释一些问题，所以你。
 
 首先，我要感谢大家的支持和所有那些希望我生日快乐。我很欣赏的。
+
 正如你们大多数人都知道，我是外国人，形成美国必须精确。我真的不知道中文一样，所以我用谷歌翻译引擎，你读的文本，并把尊重我为这个网站。
 
 我尝试读我的每一个主题后，我发现一些其他问题。
@@ -42,23 +44,26 @@ I think that pretty much it. So I hope you all enjoy this bundle I made. Sorry b
 
 YA-HA!!!
 
-http://www.megaupload.com/?d=IJ482XND<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+http://www.megaupload.com/?d=IJ482XND 
 
 # 2
 
- <ignore_js_op>[ccpic.png](forum.php?mod=attachment&aid=MTQ0OTN8Y2UyOGQ0YTl8MTYwMzg3ODUzMnwxODIzMHw5MTYy&nothumb=yes) *(522.38 KB, 下載次數: 48)*
+<ignore_js_op>[ccpic.png](forum.php?mod=attachment&aid=MTQ0OTN8Y2UyOGQ0YTl8MTYwMzg3ODUzMnwxODIzMHw5MTYy&nothumb=yes) *(522.38 KB, 下載次數: 48)*
 
 [下載附件](forum.php?mod=attachment&aid=MTQ0OTN8Y2UyOGQ0YTl8MTYwMzg3ODUzMnwxODIzMHw5MTYy&nothumb=yes)
 
 2009-10-24 14:04 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![ccpic.png](static/image/common/none.gif "ccpic.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![ccpic.png](static/image/common/none.gif "ccpic.png")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > 原帖由 *awkeygen* 於 2009-10-24 01:14 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=69437&ptid=5437)
+
 > 建议加个场景或者再渲染哈！！
+
 > suggestion：1.more Scene
+
 >             2.adding background
 
 I actually added a background, but for some reason, poser acted up and left the background out.
@@ -67,11 +72,12 @@ I actually added a background, but for some reason, poser acted up and left the 
 
 事实上，我添加了一个背景，但由于某些原因，波塞尔行动起来，离开了背景下。
 
-YA-HA!!!<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 4
 
 > 原帖由 *awkeygen* 於 2009-10-24 01:29 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=69451&ptid=5437)
+
 > To select render settings!!
 
 Ohhh!![](static/image/smiley/bigface/40.gif)  I get it. I'm still learning all this. Thanks for teaching me something new.

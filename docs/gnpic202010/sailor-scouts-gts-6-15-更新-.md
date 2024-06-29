@@ -4,17 +4,17 @@
 
 TID：14411
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本文章最後由 zaku3333333333 於 2013-6-15 01:41 編輯*
 
-sailor scouts gts<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+sailor scouts gts 
 
 # 2
 
- <ignore_js_op>[2f57b7843b8128378026b9b6de694ed2.jpg](forum.php?mod=attachment&aid=MzQ3NTB8OThkMjJlYzN8MTYwMzg2NjkzMnwxODIzMHwxNDQxMQ%3D%3D&nothumb=yes) *(270.58 KB, 下載次數: 19)*
+<ignore_js_op>[2f57b7843b8128378026b9b6de694ed2.jpg](forum.php?mod=attachment&aid=MzQ3NTB8OThkMjJlYzN8MTYwMzg2NjkzMnwxODIzMHwxNDQxMQ%3D%3D&nothumb=yes) *(270.58 KB, 下載次數: 19)*
 
 [下載附件](forum.php?mod=attachment&aid=MzQ3NTB8OThkMjJlYzN8MTYwMzg2NjkzMnwxODIzMHwxNDQxMQ%3D%3D&nothumb=yes)
 

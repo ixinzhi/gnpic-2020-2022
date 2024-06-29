@@ -4,22 +4,25 @@
 
 TID：15201
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 Hello~
+
 我是 GS Uploader上的 Pachy (YT 是 Pach Ei，因為要入姓及名...)，第一次發帖真是有點緊張和興奮～
+
 雖然是香港出生的同胞，但中文能力始終不及英文。一旦我中文顯得不流暢，請各各原諒...
+
 本小人對論壇的認知不熟，若我現在的狀態其實是無權在此版發帖，不妨可以給本人提點同時把此帖刪除。
 
 自我介紹到此先，發發MMD 圖去～
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[patchy_08b.jpg](forum.php?mod=attachment&aid=MzY0NzB8M2VlNDEyMWJ8MTYwMzg3MzIwMXwxODIzMHwxNTIwMQ%3D%3D&nothumb=yes) *(556.81 KB, 下載次數: 8)*
+<ignore_js_op>[patchy_08b.jpg](forum.php?mod=attachment&aid=MzY0NzB8M2VlNDEyMWJ8MTYwMzg3MzIwMXwxODIzMHwxNTIwMQ%3D%3D&nothumb=yes) *(556.81 KB, 下載次數: 8)*
 
 [下載附件](forum.php?mod=attachment&aid=MzY0NzB8M2VlNDEyMWJ8MTYwMzg3MzIwMXwxODIzMHwxNTIwMQ%3D%3D&nothumb=yes)
 
@@ -37,13 +40,16 @@ Hello~
 
 2013-9-3 02:57 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![patchy_08c.jpg](img/291fbe78104c583ebcda82aba1fce0c4.png "patchy_08c.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![patchy_08c.jpg](img/291fbe78104c583ebcda82aba1fce0c4.png "patchy_08c.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > huang123ja 發表於 2013-9-3 12:44 [](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=202915&ptid=15201)
+
 > 原作者来了啊
+
 > 我还把你的作品搬运到acfun上去过   
+
 > http://www.acfun.tv/v/ac803075
 
 噢，轉載如果是有我原作者的資料其實是okay，只希望大家不要利用本人的作品來傳播電腦病毒等的不仁道手段。

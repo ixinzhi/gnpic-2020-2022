@@ -4,7 +4,7 @@
 
 TID：14536
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -13,6 +13,7 @@ TID：14536
 概念是由 Jack Black 的 Gulliver's Travels 處"借"過來的。
 
 大與小的正在享樂中....
+
 <ignore_js_op>![](img/2f7040034354efc68436dfd212a3289e.png)
 
 **GTS_vs_Robot_001.jpg** *(888.3 KB, 下載次數: 61)*
@@ -22,6 +23,7 @@ TID：14536
 2013-6-12 13:50 上傳
 
 突然......
+
 <ignore_js_op>![](img/5b477e9ee44cf7ef600d4a93b1bc146d.png)
 
 **GTS_vs_Robot_002.jpg** *(885.35 KB, 下載次數: 3)*
@@ -46,7 +48,7 @@ TID：14536
 
 2013-6-12 13:51 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -82,13 +84,14 @@ TID：14536
 
 2013-6-12 13:53 上傳
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
 *本文章最後由 LittleLamb 於 2013-6-12 14:07 編輯*
 
 黑衣人:"大個子！我現在就要抓著妳！！"
+
 <ignore_js_op>![](img/d59c83e602d602a60d30b09530d492c9.png)
 
 **GTS_vs_Robot_009.jpg** *(612.08 KB, 下載次數: 2)*
@@ -98,6 +101,7 @@ TID：14536
 2013-6-12 13:54 上傳
 
 女巨人："你們小小的，還是先退避一下。"
+
 <ignore_js_op>![](img/d09a5f4ec6a51c88dbe6947b7a582b07.png)
 
 **GTS_vs_Robot_010.jpg** *(888.08 KB, 下載次數: 60)*
@@ -122,7 +126,7 @@ TID：14536
 
 2013-6-12 13:56 上傳
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
@@ -158,7 +162,7 @@ TID：14536
 
 2013-6-12 13:58 上傳
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 
@@ -173,6 +177,7 @@ TID：14536
 2013-6-12 14:00 上傳
 
 黑衣人："噢！我好像計算錯了高度............"
+
 <ignore_js_op>![](img/30c915711358d7ccdee5a069ea827ec2.png)
 
 **GTS_vs_Robot_018.jpg** *(781.65 KB, 下載次數: 4)*
@@ -197,31 +202,36 @@ TID：14536
 
 2013-6-12 14:01 上傳
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
 > wxy112300 發表於 2013-6-13 00:25 [](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=191196&ptid=14536)
+
 > 嗯....介意分享模组么....
 
 > 嗯....介意分享模组么....
 
 隨便吧！反正我也是"借"了某電影的情節改篇.....![](static/image/smiley/big/lol.gif)
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 7
 
 > wxy112300 發表於 2013-6-13 22:50 [](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=191269&ptid=14536)
+
 > 求模型和贴图附件....这年头高模不好找啊...我也想研究研究这个...
 
 還以為你想轉載圖片到其它網站，原來是想要電腦原檔案......![](static/image/smiley/bigface/10.gif)
 
 我所在之地抓盜版軟件是很嚴的，從良已久，那些 EULA 條例實在不好搞......![](static/image/smiley/bigface/14.gif)
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 8
 
 > hentai 發表於 2013-7-22 18:10 [](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=195015&ptid=14536)
+
 > 女巨人不太漂亮嘛！
 
 說得很對，所以不會再發圖了。![](static/image/smiley/big/sleep.gif)</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

@@ -4,35 +4,37 @@
 
 TID：28544
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 蘑菇菇 於 2020-4-24 13:56 編輯*
 
 大家好，这里是蘑菇。![](static/image/smiley/girl/07.png)这次更新的是之前预告的狐妖巫女篇，希望大家喜欢。Q群号是854945655哦。
+
 在这里感谢K大[@kevinsky05](https://giantessnight.com/gnforum2012/home.php?mod=space&uid=160) 的指导以及各位的支持。
 
 PS：好喜欢小狐狸，想给她整张超清做壁纸....
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[2.png](forum.php?mod=attachment&aid=ODI2MzR8YTQ1NDkyNjl8MTYwMzgzMjY0OHwxODIzMHwyODU0NA%3D%3D&nothumb=yes) *(3.17 MB, 下載次數: 25)*
+<ignore_js_op>[2.png](forum.php?mod=attachment&aid=ODI2MzR8YTQ1NDkyNjl8MTYwMzgzMjY0OHwxODIzMHwyODU0NA%3D%3D&nothumb=yes) *(3.17 MB, 下載次數: 25)*
 
 [下載附件](forum.php?mod=attachment&aid=ODI2MzR8YTQ1NDkyNjl8MTYwMzgzMjY0OHwxODIzMHwyODU0NA%3D%3D&nothumb=yes)
 
 2020-4-22 14:24 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![2.png](img/f4bb2dc57e3fcb946bd81b9f32290ce7.png "2.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![2.png](img/f4bb2dc57e3fcb946bd81b9f32290ce7.png "2.png")](javascript:;)</ignore_js_op>  
 
 # 3
 
-依然是使用了daz，要问剧情的话，依旧是没什么剧情哦<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+依然是使用了daz，要问剧情的话，依旧是没什么剧情哦 
 
 # 4
 
- <ignore_js_op>[6.png](forum.php?mod=attachment&aid=ODI2Mzh8MjdlNjRjYTN8MTYwMzgzMjY0OHwxODIzMHwyODU0NA%3D%3D&nothumb=yes) *(3 MB, 下載次數: 28)*
+<ignore_js_op>[6.png](forum.php?mod=attachment&aid=ODI2Mzh8MjdlNjRjYTN8MTYwMzgzMjY0OHwxODIzMHwyODU0NA%3D%3D&nothumb=yes) *(3 MB, 下載次數: 28)*
 
 [下載附件](forum.php?mod=attachment&aid=ODI2Mzh8MjdlNjRjYTN8MTYwMzgzMjY0OHwxODIzMHwyODU0NA%3D%3D&nothumb=yes)
 
@@ -56,18 +58,19 @@ PS：好喜欢小狐狸，想给她整张超清做壁纸....
 
 2020-4-22 14:37 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![3(1).png](img/4926192d08d9c6160e27333f9aeb274b.png "3(1).png")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![3(1).png](img/4926192d08d9c6160e27333f9aeb274b.png "3(1).png")](javascript:;)</ignore_js_op>  
 
 # 5
 
 *本帖最後由 蘑菇菇 於 2020-4-23 15:11 編輯*
 
 这次为图片都打上了独特的蘑菇标志哦，聪明的你能找到吗？据说全部找到就可以……![](static/image/smiley/girl/02.png)
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 6
 
- <ignore_js_op>[10.png](forum.php?mod=attachment&aid=ODI2NTd8ZjkwNDFmNDh8MTYwMzgzMjY0OHwxODIzMHwyODU0NA%3D%3D&nothumb=yes) *(3.61 MB, 下載次數: 24)*
+<ignore_js_op>[10.png](forum.php?mod=attachment&aid=ODI2NTd8ZjkwNDFmNDh8MTYwMzgzMjY0OHwxODIzMHwyODU0NA%3D%3D&nothumb=yes) *(3.61 MB, 下載次數: 24)*
 
 [下載附件](forum.php?mod=attachment&aid=ODI2NTd8ZjkwNDFmNDh8MTYwMzgzMjY0OHwxODIzMHwyODU0NA%3D%3D&nothumb=yes)
 
@@ -91,16 +94,17 @@ PS：好喜欢小狐狸，想给她整张超清做壁纸....
 
 2020-4-23 15:09 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![7.png](img/478a2f0e48d3db1d5c3042923d812168.png "7.png")](javascript:;)</ignore_js_op> <title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![7.png](img/478a2f0e48d3db1d5c3042923d812168.png "7.png")](javascript:;)</ignore_js_op>  
 
 # 7
 
 走路的时候一定要小心头顶！不要等到一切变得太晚。
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 8
 
- <ignore_js_op>[13.png](forum.php?mod=attachment&aid=ODI2NzR8NmRmZjdlZjB8MTYwMzgzMjY0OHwxODIzMHwyODU0NA%3D%3D&nothumb=yes) *(3.08 MB, 下載次數: 19)*
+<ignore_js_op>[13.png](forum.php?mod=attachment&aid=ODI2NzR8NmRmZjdlZjB8MTYwMzgzMjY0OHwxODIzMHwyODU0NA%3D%3D&nothumb=yes) *(3.08 MB, 下載次數: 19)*
 
 [下載附件](forum.php?mod=attachment&aid=ODI2NzR8NmRmZjdlZjB8MTYwMzgzMjY0OHwxODIzMHwyODU0NA%3D%3D&nothumb=yes)
 

@@ -4,17 +4,17 @@
 
 TID：7922
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 mouthplay and close-up vore movie
 
-here is a sample. Enjoy!![](static/image/smiley/bigface/54.gif)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+here is a sample. Enjoy!![](static/image/smiley/bigface/54.gif) 
 
 # 2
 
- <ignore_js_op>[sample.jpg](forum.php?mod=attachment&aid=MjA1MTl8MDgzZWUzOGF8MTYwMzg3OTk3M3wxODIzMHw3OTIy&nothumb=yes) *(244.38 KB, 下載次數: 5)*
+<ignore_js_op>[sample.jpg](forum.php?mod=attachment&aid=MjA1MTl8MDgzZWUzOGF8MTYwMzg3OTk3M3wxODIzMHw3OTIy&nothumb=yes) *(244.38 KB, 下載次數: 5)*
 
 [下載附件](forum.php?mod=attachment&aid=MjA1MTl8MDgzZWUzOGF8MTYwMzg3OTk3M3wxODIzMHw3OTIy&nothumb=yes)
 

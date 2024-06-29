@@ -4,11 +4,12 @@
 
 TID：953
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 很久没做图了,看到这里那么热闹,就来凑下吧!一直在找漂亮的模型,现在想用这个MM做女主角.(后面的自然是男主角了)故事还没想好.;我是温柔系的,呵呵,不过做图比较懒;
+
 喜欢的就顶下哦!![](static/image/smiley/bigface/14.gif)
 
 <ignore_js_op>![](static/image/common/none.gif)

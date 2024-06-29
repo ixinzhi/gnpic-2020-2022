@@ -4,15 +4,15 @@
 
 TID：21759
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-可能这是我们的女生苏琪姐内心最终幻想嘛，说明GTS其实也挺正常的![](static/image/smiley/bigface/12.gif)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+可能这是我们的女生苏琪姐内心最终幻想嘛，说明GTS其实也挺正常的![](static/image/smiley/bigface/12.gif) 
 
 # 2
 
- <ignore_js_op>[GTS.jpg](forum.php?mod=attachment&aid=NjM4NzR8NWVkNWQ5OWN8MTYwMzg2MDc3MHwxODIzMHwyMTc1OQ%3D%3D&nothumb=yes) *(50.65 KB, 下載次數: 71)*
+<ignore_js_op>[GTS.jpg](forum.php?mod=attachment&aid=NjM4NzR8NWVkNWQ5OWN8MTYwMzg2MDc3MHwxODIzMHwyMTc1OQ%3D%3D&nothumb=yes) *(50.65 KB, 下載次數: 71)*
 
 [下載附件](forum.php?mod=attachment&aid=NjM4NzR8NWVkNWQ5OWN8MTYwMzg2MDc3MHwxODIzMHwyMTc1OQ%3D%3D&nothumb=yes)
 

@@ -4,19 +4,21 @@
 
 TID：23984
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 發一個預告~
+
 11月6號亞娜生日,我會準時發放*(天使可愛的笑聲)*
+
 最後一話 owo到時希望看完的朋友們祝福她生日快樂
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[2.png](forum.php?mod=attachment&aid=Njk3Mzh8MjJjMWI3YzN8MTYwMzg1NDE3NHwxODIzMHwyMzk4NA%3D%3D&nothumb=yes) *(606.13 KB, 下載次數: 10)*
+<ignore_js_op>[2.png](forum.php?mod=attachment&aid=Njk3Mzh8MjJjMWI3YzN8MTYwMzg1NDE3NHwxODIzMHwyMzk4NA%3D%3D&nothumb=yes) *(606.13 KB, 下載次數: 10)*
 
 [下載附件](forum.php?mod=attachment&aid=Njk3Mzh8MjJjMWI3YzN8MTYwMzg1NDE3NHwxODIzMHwyMzk4NA%3D%3D&nothumb=yes)
 

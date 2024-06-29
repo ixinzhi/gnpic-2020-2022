@@ -4,7 +4,7 @@
 
 TID：5727
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ Here is some Line Art that I have been doing. More To come!
 
 下面是一些线的艺术，我一直在做。更多的惊喜！
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[ClimbingMtHornyYuffie.jpg](forum.php?mod=attachment&aid=MTUwODF8YjcxZGFkOWJ8MTYwMzg4MTI5NnwxODIzMHw1NzI3&nothumb=yes) *(332.23 KB, 下載次數: 4)*
+<ignore_js_op>[ClimbingMtHornyYuffie.jpg](forum.php?mod=attachment&aid=MTUwODF8YjcxZGFkOWJ8MTYwMzg4MTI5NnwxODIzMHw1NzI3&nothumb=yes) *(332.23 KB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=MTUwODF8YjcxZGFkOWJ8MTYwMzg4MTI5NnwxODIzMHw1NzI3&nothumb=yes)
 

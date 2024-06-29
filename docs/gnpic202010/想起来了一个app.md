@@ -4,12 +4,14 @@
 
 TID：23120
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 名字叫，mikumikuar，可以稍微玩玩
+
 示例图大概就是这样的
+
 <ignore_js_op>![](img/77c18f88f85e1e2441836107e0775c50.png)
 
 **A1.png** *(1.57 MB, 下載次數: 2)*

@@ -4,7 +4,7 @@
 
 TID：11950
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -20,16 +20,19 @@ TID：11950
 
 2012-3-7 20:29 上傳
 
-[ *本帖最後由 xnr 於 2012-3-7 20:29 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2012-3-7 20:29 編輯* ] 
 
 # 2
 
 > wtman 發表於 2012-3-10 12:20 [](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=159509&ptid=11950)
+
 > 伸不出手來..........
+
 > 腫麼了，百度gtss吧進行了次元彈跳，切入了GN論壇了?!
+
 > (板主啟:人家喜歡這種 ...
 
-你的QQ号？我发给你。<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+你的QQ号？我发给你。 
 
 # 3
 

@@ -4,17 +4,17 @@
 
 TID：14853
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 manga collage
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[kkk.jpg](forum.php?mod=attachment&aid=MzU0NjF8NmI3MWQ4ZjZ8MTYwMzg2Njk5NHwxODIzMHwxNDg1Mw%3D%3D&nothumb=yes) *(341.8 KB, 下載次數: 23)*
+<ignore_js_op>[kkk.jpg](forum.php?mod=attachment&aid=MzU0NjF8NmI3MWQ4ZjZ8MTYwMzg2Njk5NHwxODIzMHwxNDg1Mw%3D%3D&nothumb=yes) *(341.8 KB, 下載次數: 23)*
 
 [下載附件](forum.php?mod=attachment&aid=MzU0NjF8NmI3MWQ4ZjZ8MTYwMzg2Njk5NHwxODIzMHwxNDg1Mw%3D%3D&nothumb=yes)
 

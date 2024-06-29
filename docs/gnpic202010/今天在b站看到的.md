@@ -4,16 +4,17 @@
 
 TID：26859
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 最近被朋友拉去玩彩六被虐成rz，所以就去b站看看视频，结果就发现了这个，作者是搬运的，叫 彩虹六号傻缺时刻 感觉作者应该是同好。
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[D72A606B-AFED-4FC9-B9D9-CB1AE33A3049.jpeg](forum.php?mod=attachment&aid=NzgyNDZ8MDI3MTdmNDJ8MTYwMzg0Mzc4NXwxODIzMHwyNjg1OQ%3D%3D&nothumb=yes) *(369.99 KB, 下載次數: 37)*
+<ignore_js_op>[D72A606B-AFED-4FC9-B9D9-CB1AE33A3049.jpeg](forum.php?mod=attachment&aid=NzgyNDZ8MDI3MTdmNDJ8MTYwMzg0Mzc4NXwxODIzMHwyNjg1OQ%3D%3D&nothumb=yes) *(369.99 KB, 下載次數: 37)*
 
 [下載附件](forum.php?mod=attachment&aid=NzgyNDZ8MDI3MTdmNDJ8MTYwMzg0Mzc4NXwxODIzMHwyNjg1OQ%3D%3D&nothumb=yes)
 

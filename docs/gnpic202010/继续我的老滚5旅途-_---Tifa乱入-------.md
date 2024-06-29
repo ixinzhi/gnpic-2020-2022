@@ -4,14 +4,18 @@
 
 TID：14284
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 最近比较闲，手痒了。。。
+
 本人终于搞明白如何突破10倍大小的上限，但由于变得更大之后镜头亦要拉远，因此周围的景物会变得没那么细致（真是**鱼与熊掌不可得兼**![](static/image/smiley/bigface/13.gif))
+
 还有本来可以放大无限倍了，试了一下一万倍，结果是天际省还没有她们脚掌大，想拍个镜头都要移动好久![](static/image/smiley/bigface/10.gif),于是就设定为170倍大小，我觉得这样比较和谐。。。
+
 P.S. Tifa粉们别喷我哦![](static/image/smiley/bigface/24.gif)，我不是故意捏得这么丑的![](static/image/smiley/bigface/27.gif)
+
 <ignore_js_op>![](img/4b20cfb017854b607c3a7aaa29a7087f.png)
 
 **TESV 2013-04-26 14-14-10-87.jpg** *(117.97 KB, 下載次數: 7)*
@@ -196,9 +200,10 @@ P.S. Tifa粉们别喷我哦![](static/image/smiley/bigface/24.gif)，我不是�
 
 2013-4-26 16:22 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 应众人要求，这次我把未经压缩的文件打包了
+
 [点击进入下载](http://pan.baidu.com/share/link?shareid=429245&uk=4127503490)</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

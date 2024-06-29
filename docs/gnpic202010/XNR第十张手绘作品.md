@@ -4,81 +4,104 @@
 
 TID：2262
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 这张画了很长时间。。。画背景比画GTS更费时间。。。
+
 画完这幅画我想我的创作要告一段落了。。。过几天去深圳闯一闯，找找工作。。。
+
 未来如果不是特别有时间，也许很少作画，毕竟我是业余的绘画爱好者，等我们华人GTS圈子有能力做游戏什么的，我很愿意制作插画。。。
 
 这张画也是给但丁的，因为他说过喜欢开车上山，一边喝饮料一边看着城市里的GTS大肆破坏。。。而我印象中但丁是略胖的身材。。。
 
 还是那句话，这是我第十张画，我希望今后每次作画都比上次有进步。。。这次貌似把台北画的绿化环境太好了。。。
+
 图片比较大，可以打开看。。
 
-[ *本帖最後由 xnr 於 2009-3-10 23:34 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2009-3-10 23:34 編輯* ] 
 
 # 2
 
- <ignore_js_op>[gts10.jpg](forum.php?mod=attachment&aid=Njg2MnxjYjkyMWEwY3wxNjAzODc5NjAyfDE4MjMwfDIyNjI%3D&nothumb=yes) *(563.16 KB, 下載次數: 23)*
+<ignore_js_op>[gts10.jpg](forum.php?mod=attachment&aid=Njg2MnxjYjkyMWEwY3wxNjAzODc5NjAyfDE4MjMwfDIyNjI%3D&nothumb=yes) *(563.16 KB, 下載次數: 23)*
 
 [下載附件](forum.php?mod=attachment&aid=Njg2MnxjYjkyMWEwY3wxNjAzODc5NjAyfDE4MjMwfDIyNjI%3D&nothumb=yes)
 
 2009-3-10 23:34 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![gts10.jpg](static/image/common/none.gif "gts10.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![gts10.jpg](static/image/common/none.gif "gts10.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 图片更新了，原来两只胳膊不对称，还修改了很多细节，这样图片更完美了。。。
+
 我的作品的整体风格还是属于比较唯美的。。。
 
 唉。。。要达到SS和白兔的水平还有很长的路要走。。。至于我喜欢的HIK的作品，我想已经部分超越了吧。。。
 
 关于但丁的照片我是有印象的，其实我也是很早就加入这个论坛的，只是以前一直潜水罢了。。。
+
 大家怎么都在讨论但丁的身材啊。。。汗。。。
 
-[ *本帖最後由 xnr 於 2009-3-10 23:43 編輯* ]<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2009-3-10 23:43 編輯* ] 
 
 # 4
 
-这张画居然在GIANTESSCITY被管理员删掉了，说是不允许以未成年女性作为创作的内容。。。<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+这张画居然在GIANTESSCITY被管理员删掉了，说是不允许以未成年女性作为创作的内容。。。 
 
 # 5
 
 我已经跟他们管理员交涉了，在国外，对未成年女性的保护是很严格的
+
 真人图是不允许使用未成年女性的。。。这个是可以理解的。。。
+
 但是没想到绘画作品居然也不可以，那日本的大量GTS作品不都是校服女孩吗？
+
 更何况我画的内容是这么健康。。。
-我举出了大量实证跟他们管理员说，如果我的这幅画都要删，那他们要删掉的帖子多了。。。<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+我举出了大量实证跟他们管理员说，如果我的这幅画都要删，那他们要删掉的帖子多了。。。 
 
 # 6
 
-没关系，只要不流传到圈外就没事。。。<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+没关系，只要不流传到圈外就没事。。。 
 
 # 7
 
 没办法。。。我现在有作品出来，一般都是但丁论坛，GIANTESSCITY，GTS/Shrinker uploader三个地方一起发，总想给自己增加点人气。。。不过圈内人的反应感觉还是太冷淡了点。。。
-看来还是自己的技术不够。。。下次的作品一定要更进一步！！！<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+看来还是自己的技术不够。。。下次的作品一定要更进一步！！！ 
 
 # 8
 
 > 原帖由 *lovegts* 於 2009-3-11 21:53 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=27602&ptid=2262)
+
 > 會嗎?
+
 > 我覺得樓主的技術已經很好了
+
 > 
+
 > 而且已經有自己的風格了
+
 > 就算沒有打上XNR
+
 > 還是能看出是你的作品
 
 其实我的水平还有很大的发展空间，每次做完画我都有很多新的体会和经验。。。
+
 我相信凭我自己的天赋加上后天的努力，就算没有经过专业培训，也能创作出好的作品来。。。
+
 至于我的风格，那还是不成熟的风格，绝不是现在大家看见的。。。
+
 我说过了，我的目标是SS和白兔。。。不达到他们的水平我不会罢休。。。
+
 我也要给日本那些搞封闭的人看看，我们华人也有优秀的创作者，而不是只知道伸手索取的。。。
+
 下一步的创作计划已经想好了，第11张和第12张一起发，尝试两种截然不同的风格。。。
+
 我以后手绘作品都用编号，大家也可以监督下是否比上次有进步。。。
+
 等忙完这阵子就抽空去做。。。
 
 [ *本帖最後由 xnr 於 2009-3-11 23:05 編輯* ]

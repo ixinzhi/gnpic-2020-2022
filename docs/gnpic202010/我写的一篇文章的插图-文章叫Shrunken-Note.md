@@ -4,15 +4,15 @@
 
 TID：5989
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-抽空画了一些我写的一篇文章的插图，文章叫Shrunken Note！没看过的可以去看看。在这里[http://giantessnight.com/gnforum ... &extra=page%3D1](http://giantessnight.com/gnforum/viewthread.php?tid=2168&page=1&extra=page%3D1)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+抽空画了一些我写的一篇文章的插图，文章叫Shrunken Note！没看过的可以去看看。在这里[http://giantessnight.com/gnforum ... &extra=page%3D1](http://giantessnight.com/gnforum/viewthread.php?tid=2168&page=1&extra=page%3D1) 
 
 # 2
 
- <ignore_js_op>[Shrunken Note01草稿.jpg](forum.php?mod=attachment&aid=MTU1MDR8YmE1YzhmMTh8MTYwMzg4MTA4NXwxODIzMHw1OTg5&nothumb=yes) *(163.36 KB, 下載次數: 1)*
+<ignore_js_op>[Shrunken Note01草稿.jpg](forum.php?mod=attachment&aid=MTU1MDR8YmE1YzhmMTh8MTYwMzg4MTA4NXwxODIzMHw1OTg5&nothumb=yes) *(163.36 KB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=MTU1MDR8YmE1YzhmMTh8MTYwMzg4MTA4NXwxODIzMHw1OTg5&nothumb=yes)
 

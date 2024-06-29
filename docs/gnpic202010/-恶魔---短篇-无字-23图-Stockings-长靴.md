@@ -4,13 +4,14 @@
 
 TID：27748
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 vipergtr 於 2019-12-22 17:28 編輯*
 
 **可以转载，可以指路，转载必须注明出处！**
+
 女主出自早先半途而废的一部作品，做了些修改。难的有空，先做个小短篇，也没什么情节，娱乐一下。 <ignore_js_op>![](img/9f717671657c5e97b0ab3550d118cf2e.png)
 
 **01.png** *(903.86 KB, 下載次數: 14)*

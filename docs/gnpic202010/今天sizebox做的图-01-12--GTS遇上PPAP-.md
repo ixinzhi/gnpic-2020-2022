@@ -4,11 +4,12 @@
 
 TID：24288
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 剧情简介：
+
 I have a group,I have a GTS.
 
 Oh!GTS crush!

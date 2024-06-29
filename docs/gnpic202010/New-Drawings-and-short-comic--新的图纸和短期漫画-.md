@@ -4,7 +4,7 @@
 
 TID：2093
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -22,11 +22,11 @@ So I hope you enjoy!
 
 因此，我希望你喜欢！
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[1.jpg](forum.php?mod=attachment&aid=NjQyNXwwYWU0MzRhN3wxNjAzODgzMDgyfDE4MjMwfDIwOTM%3D&nothumb=yes) *(469.52 KB, 下載次數: 12)*
+<ignore_js_op>[1.jpg](forum.php?mod=attachment&aid=NjQyNXwwYWU0MzRhN3wxNjAzODgzMDgyfDE4MjMwfDIwOTM%3D&nothumb=yes) *(469.52 KB, 下載次數: 12)*
 
 [下載附件](forum.php?mod=attachment&aid=NjQyNXwwYWU0MzRhN3wxNjAzODgzMDgyfDE4MjMwfDIwOTM%3D&nothumb=yes)
 
@@ -56,7 +56,7 @@ YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="s
 
 2009-2-18 13:05 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![5.jpg](static/image/common/none.gif "5.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![5.jpg](static/image/common/none.gif "5.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
@@ -66,11 +66,11 @@ I guess the file was too big. So I'll just post the picture then.
 
 我猜的文件太大。所以我就张贴图片然后。
 
-YA-HA!!!<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 4
 
- <ignore_js_op>[unfair1.jpg](forum.php?mod=attachment&aid=NjQzMHwxZTE5OWRlOXwxNjAzODgzMDgyfDE4MjMwfDIwOTM%3D&nothumb=yes) *(705.68 KB, 下載次數: 6)*
+<ignore_js_op>[unfair1.jpg](forum.php?mod=attachment&aid=NjQzMHwxZTE5OWRlOXwxNjAzODgzMDgyfDE4MjMwfDIwOTM%3D&nothumb=yes) *(705.68 KB, 下載次數: 6)*
 
 [下載附件](forum.php?mod=attachment&aid=NjQzMHwxZTE5OWRlOXwxNjAzODgzMDgyfDE4MjMwfDIwOTM%3D&nothumb=yes)
 
@@ -118,7 +118,7 @@ YA-HA!!!<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="s
 
 2009-2-18 13:18 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![unfair8.jpg](static/image/common/none.gif "unfair8.jpg")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![unfair8.jpg](static/image/common/none.gif "unfair8.jpg")](javascript:;)</ignore_js_op>  
 
 # 5
 
@@ -134,11 +134,11 @@ Enjoy!
 
 Pliod ，我真的试图将漫画在一个压缩文件，但它没有经过出于某种原因。但是，当我再次漫画我会再试一次。这里有两个以上的图片。
 
-享受！<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+享受！ 
 
 # 6
 
- <ignore_js_op>[comic 1.jpg](forum.php?mod=attachment&aid=NjQ1N3wyZGNmNDhmM3wxNjAzODgzMDgyfDE4MjMwfDIwOTM%3D&nothumb=yes) *(509.56 KB, 下載次數: 2)*
+<ignore_js_op>[comic 1.jpg](forum.php?mod=attachment&aid=NjQ1N3wyZGNmNDhmM3wxNjAzODgzMDgyfDE4MjMwfDIwOTM%3D&nothumb=yes) *(509.56 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=NjQ1N3wyZGNmNDhmM3wxNjAzODgzMDgyfDE4MjMwfDIwOTM%3D&nothumb=yes)
 
@@ -150,7 +150,7 @@ Pliod ，我真的试图将漫画在一个压缩文件，但它没有经过出�
 
 2009-2-19 12:24 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![comic 2.jpg](static/image/common/none.gif "comic 2.jpg")](javascript:;)</ignore_js_op> <title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![comic 2.jpg](static/image/common/none.gif "comic 2.jpg")](javascript:;)</ignore_js_op>  
 
 # 7
 
@@ -160,11 +160,11 @@ Here another couple of drawings I made. Enjoy.
 
 这里另一对夫妇的图纸我。享受。
 
-YA-HA!!!<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 8
 
- <ignore_js_op>[6.jpg](forum.php?mod=attachment&aid=NjU3MnxmMDY3MzNkNXwxNjAzODgzMDgyfDE4MjMwfDIwOTM%3D&nothumb=yes) *(362.03 KB, 下載次數: 1)*
+<ignore_js_op>[6.jpg](forum.php?mod=attachment&aid=NjU3MnxmMDY3MzNkNXwxNjAzODgzMDgyfDE4MjMwfDIwOTM%3D&nothumb=yes) *(362.03 KB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=NjU3MnxmMDY3MzNkNXwxNjAzODgzMDgyfDE4MjMwfDIwOTM%3D&nothumb=yes)
 

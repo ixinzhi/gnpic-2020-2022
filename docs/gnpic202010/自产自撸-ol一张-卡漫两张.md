@@ -4,14 +4,18 @@
 
 TID：13562
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 纯粹个人口味，多size和足袜
+
 懒得加阴影了
+
 顺便求素材，妹子的素材已经足够了，抠图抠的快瞎了
+
 求施工工人和车辆建筑的免扣图，网上找不到，而且不好抠
+
 关键是咱完全不想盯着这些东西看，你懂的
 
 <ignore_js_op>![](img/29713b51dcc608e2be48d9e913bd1bbc.png)
@@ -23,15 +27,19 @@ TID：13562
 2012-11-13 14:11 上傳
 
 老夫先撸为敬，楼下兄弟随意
+
 （不要说没男人，放了三个，自己找）
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > xnr 發表於 2012-11-14 18:30 [](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=178123&ptid=13562)
+
 > 改动还算很细致的。
+
 > 
+
 > 要不要我把寺田叫过来看看？
 
 嘿嘿，好啊

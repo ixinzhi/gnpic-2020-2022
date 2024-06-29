@@ -4,7 +4,7 @@
 
 TID：5689
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ Its crazy over here right now. The power keeps going out and now there's a flood
 
 它的疯狂，现在在这里。电力不断走出去，现在有一个洪水警告。我想多数民众赞成的价格你生活在一个半薪岛海滨城市。不管怎么说，我的工作积极一切都会在最后，因为它总是这样。反正延误抱歉，我让自己陷入了漫画很多了。金肉钩都让我这个星期。享受！
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[Jack-and-the-Giant-loli-21.png](forum.php?mod=attachment&aid=MTUwMzN8N2MzNDJjMjR8MTYwMzg4MDI4OXwxODIzMHw1Njg5&nothumb=yes) *(616.74 KB, 下載次數: 5)*
+<ignore_js_op>[Jack-and-the-Giant-loli-21.png](forum.php?mod=attachment&aid=MTUwMzN8N2MzNDJjMjR8MTYwMzg4MDI4OXwxODIzMHw1Njg5&nothumb=yes) *(616.74 KB, 下載次數: 5)*
 
 [下載附件](forum.php?mod=attachment&aid=MTUwMzN8N2MzNDJjMjR8MTYwMzg4MDI4OXwxODIzMHw1Njg5&nothumb=yes)
 

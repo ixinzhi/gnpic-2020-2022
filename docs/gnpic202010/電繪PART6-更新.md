@@ -4,7 +4,7 @@
 
 TID：22094
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -13,11 +13,12 @@ TID：22094
 希望大家會喜歡~
 
 主題 : 客人呢
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[01.jpg](forum.php?mod=attachment&aid=NjUzMjF8NDVkZjgwNzd8MTYwMzg2MDEzMHwxODIzMHwyMjA5NA%3D%3D&nothumb=yes) *(1.72 MB, 下載次數: 11)*
+<ignore_js_op>[01.jpg](forum.php?mod=attachment&aid=NjUzMjF8NDVkZjgwNzd8MTYwMzg2MDEzMHwxODIzMHwyMjA5NA%3D%3D&nothumb=yes) *(1.72 MB, 下載次數: 11)*
 
 [下載附件](forum.php?mod=attachment&aid=NjUzMjF8NDVkZjgwNzd8MTYwMzg2MDEzMHwxODIzMHwyMjA5NA%3D%3D&nothumb=yes)
 
@@ -47,36 +48,37 @@ TID：22094
 
 01
 
-[![01](img/4c025bc02dabebc78c27766b933eef30.png "01")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![01](img/4c025bc02dabebc78c27766b933eef30.png "01")](javascript:;)</ignore_js_op>  
 
 # 3
 
 電繪第4波 出爐
 
-主題: 奇怪客戶怎麼不見了?<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+主題: 奇怪客戶怎麼不見了? 
 
 # 4
 
- <ignore_js_op>[14907156_1688175038164503_1531161447072225112_n.jpg](forum.php?mod=attachment&aid=NjUzNjJ8MDAxYzBhYWN8MTYwMzg2MDEzMHwxODIzMHwyMjA5NA%3D%3D&nothumb=yes) *(17.91 KB, 下載次數: 3)*
+<ignore_js_op>[14907156_1688175038164503_1531161447072225112_n.jpg](forum.php?mod=attachment&aid=NjUzNjJ8MDAxYzBhYWN8MTYwMzg2MDEzMHwxODIzMHwyMjA5NA%3D%3D&nothumb=yes) *(17.91 KB, 下載次數: 3)*
 
 [下載附件](forum.php?mod=attachment&aid=NjUzNjJ8MDAxYzBhYWN8MTYwMzg2MDEzMHwxODIzMHwyMjA5NA%3D%3D&nothumb=yes)
 
 2016-11-2 09:47 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![14907156_1688175038164503_1531161447072225112_n.jpg](img/17be4ce868c434ca115feb66d3e2121f.png "14907156_1688175038164503_1531161447072225112_n.jpg")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![14907156_1688175038164503_1531161447072225112_n.jpg](img/17be4ce868c434ca115feb66d3e2121f.png "14907156_1688175038164503_1531161447072225112_n.jpg")](javascript:;)</ignore_js_op>  
 
 # 5
 
 電繪第5波 出爐
+
 (黑色絲襪 / 膚色絲襪)
 
 還希望大家多多支持><
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
- <ignore_js_op>[未命名-6.jpg](forum.php?mod=attachment&aid=NjU0MDF8ODM4YzhhYzR8MTYwMzg2MDEzMHwxODIzMHwyMjA5NA%3D%3D&nothumb=yes) *(1.92 MB, 下載次數: 4)*
+<ignore_js_op>[未命名-6.jpg](forum.php?mod=attachment&aid=NjU0MDF8ODM4YzhhYzR8MTYwMzg2MDEzMHwxODIzMHwyMjA5NA%3D%3D&nothumb=yes) *(1.92 MB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=NjU0MDF8ODM4YzhhYzR8MTYwMzg2MDEzMHwxODIzMHwyMjA5NA%3D%3D&nothumb=yes)
 
@@ -88,11 +90,12 @@ TID：22094
 
 2016-11-3 22:11 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![未命名-6-2.jpg](img/805d265f1e925aa3b67ca1bbd376d6ce.png "未命名-6-2.jpg")](javascript:;)</ignore_js_op> <title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![未命名-6-2.jpg](img/805d265f1e925aa3b67ca1bbd376d6ce.png "未命名-6-2.jpg")](javascript:;)</ignore_js_op>  
 
 # 7
 
 | 電繪第6波 出爐 (黑色絲)
+
 主題:情侶約會
 
 奇怪都幾點了?還遲到
@@ -103,11 +106,11 @@ TID：22094
 
 傳送門 : https://www.facebook.com/gtsworld/ |
 
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 8
 
- <ignore_js_op>[未命名-7-2.jpg](forum.php?mod=attachment&aid=NjU0OTJ8MzBlMzdkMTN8MTYwMzg2MDEzMHwxODIzMHwyMjA5NA%3D%3D&nothumb=yes) *(1.93 MB, 下載次數: 1)*
+<ignore_js_op>[未命名-7-2.jpg](forum.php?mod=attachment&aid=NjU0OTJ8MzBlMzdkMTN8MTYwMzg2MDEzMHwxODIzMHwyMjA5NA%3D%3D&nothumb=yes) *(1.93 MB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=NjU0OTJ8MzBlMzdkMTN8MTYwMzg2MDEzMHwxODIzMHwyMjA5NA%3D%3D&nothumb=yes)
 

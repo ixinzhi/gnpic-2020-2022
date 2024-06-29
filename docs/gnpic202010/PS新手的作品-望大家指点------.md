@@ -4,11 +4,12 @@
 
 TID：10872
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 第一次P图,作得不好大家不要见怪,望指点...![](static/image/smiley/bigface/11.gif)
+
 <ignore_js_op>![](img/b0eda4d05e86b5932879f06bad5a1a75.png)
 
 **A.jpg** *(850.1 KB, 下載次數: 2)*
@@ -25,7 +26,7 @@ TID：10872
 
 2011-8-26 12:49 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

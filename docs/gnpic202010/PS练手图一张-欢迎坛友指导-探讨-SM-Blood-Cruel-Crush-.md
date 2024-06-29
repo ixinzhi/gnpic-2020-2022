@@ -4,7 +4,7 @@
 
 TID：17809
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -12,7 +12,7 @@ TID：17809
 
 **素材基本是从原有合成图上借用的，期待各位给出修改意见。**
 
- * * *
+* * *
 
 <ignore_js_op>![](img/63cfc2bdb7dde16ff0a05f5159a59ee7.png)</ignore_js_op> **bikini_crush_by_woshizeiwang.jpg** *(4.8 MB, 下載次數: 5)*
 
@@ -20,5 +20,6 @@ TID：17809
 
 2014-9-23 14:58 上傳 
 
- * * * 
+* * * 
+
 **(PS：本人文字功底太差，求文采好的大大帮忙就该图插入一段短故事，感激不尽)**

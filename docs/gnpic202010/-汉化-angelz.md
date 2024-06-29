@@ -4,21 +4,23 @@
 
 TID：17441
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 moboss11330 於 2015-6-21 09:37 編輯*
 
 这个漫画应该没人汉化过吧（在漫画区的话就无语![](static/image/smiley/bigface/23.gif)）
+
 由于本人技术渣，ps的痕迹特别明显，不过不影响阅读就算了。
+
 （要是有后续就更爽了![](static/image/smiley/bigface/5.gif)）
 
-链接: [http://pan.baidu.com/s/1sjLYiKX](http://pan.baidu.com/s/1sjLYiKX) 密码: q5v2<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+链接: [http://pan.baidu.com/s/1sjLYiKX](http://pan.baidu.com/s/1sjLYiKX) 密码: q5v2 
 
 # 2
 
- <ignore_js_op>[015.jpg](forum.php?mod=attachment&aid=NDUyNDF8MzI3MWViMGF8MTYwMzg2MDUxNXwxODIzMHwxNzQ0MQ%3D%3D&nothumb=yes) *(1.05 MB, 下載次數: 11)*
+<ignore_js_op>[015.jpg](forum.php?mod=attachment&aid=NDUyNDF8MzI3MWViMGF8MTYwMzg2MDUxNXwxODIzMHwxNzQ0MQ%3D%3D&nothumb=yes) *(1.05 MB, 下載次數: 11)*
 
 [下載附件](forum.php?mod=attachment&aid=NDUyNDF8MzI3MWViMGF8MTYwMzg2MDUxNXwxODIzMHwxNzQ0MQ%3D%3D&nothumb=yes)
 
@@ -174,29 +176,36 @@ TID：17441
 
 2014-7-30 12:53 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![002.jpg](img/5528dd7d253a83741b6c96805e630007.png "002.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![002.jpg](img/5528dd7d253a83741b6c96805e630007.png "002.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
-晕，上传的时候还好的，一按发表顺序就乱，why？![](static/image/smiley/bigface/14.gif)<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+晕，上传的时候还好的，一按发表顺序就乱，why？![](static/image/smiley/bigface/14.gif) 
 
 # 4
 
 *本帖最後由 moboss11330 於 2014-7-30 12:46 編輯*
 
 > [餃子 發表於 2014-7-30 12:36](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=229825&ptid=17441)
+
 > ←上传完之后点这个
+
 > ←再点已上传的图片就可以直接加到帖子里排序了
 
 还是不行，试一下这个好了
-[http://pan.baidu.com/s/1sjNjUpv](http://pan.baidu.com/s/1sjNjUpv) igau<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+[http://pan.baidu.com/s/1sjNjUpv](http://pan.baidu.com/s/1sjNjUpv) igau 
 
 # 5
 
 > [shendanxiaogui 發表於 2014-7-30 13:30](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=229835&ptid=17441)
+
 > (/▽＼)还是老样子。每个角色之间的对话没有一点特色。润色工作要加油哦~
+
 > (´・ω・｀)另外，字一直跑到框 ...
 
 润色方面举几个例子吧![](static/image/smiley/bigface/11.gif)，自己看的话怎么看都没事。
+
 字在框外也没办法，ps时这么大的图缩得那么小，真得很难修改。
+
 最后，怎样才不算废话![](static/image/smiley/bigface/1.gif)？

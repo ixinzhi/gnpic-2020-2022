@@ -4,11 +4,12 @@
 
 TID：16008
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 如題(?
+
 不過顯示卡還是不給力 放大就悲劇這樣(?
 
 <ignore_js_op>![](img/c607fb75e2bc2a4d3601dd435932e1f9.png)

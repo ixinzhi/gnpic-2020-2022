@@ -4,21 +4,23 @@
 
 TID：4913
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 大家好!
 
 我成功了! 用「自動生成都市地図」於SexyBeach3\. ![](static/image/smiley/bigface/53.gif)
+
 3D CG Software "Metasequoia"   [http://www.metaseq.net/](http://www.metaseq.net/)
+
 Automatic city data generator "citygen"   [http://homepage3.nifty.com/mitsumatsu/](http://homepage3.nifty.com/mitsumatsu/)
 
-So, 我製作Giga巨大女的圖片非常簡單了! 品質也提高!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+So, 我製作Giga巨大女的圖片非常簡單了! 品質也提高! 
 
 # 2
 
- <ignore_js_op>[20090922-184955.jpg](forum.php?mod=attachment&aid=MTMzMDl8MzUzZTM4ZTN8MTYwMzg3ODI3N3wxODIzMHw0OTEz&nothumb=yes) *(514.9 KB, 下載次數: 2)*
+<ignore_js_op>[20090922-184955.jpg](forum.php?mod=attachment&aid=MTMzMDl8MzUzZTM4ZTN8MTYwMzg3ODI3N3wxODIzMHw0OTEz&nothumb=yes) *(514.9 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=MTMzMDl8MzUzZTM4ZTN8MTYwMzg3ODI3N3wxODIzMHw0OTEz&nothumb=yes)
 
@@ -42,19 +44,21 @@ So, 我製作Giga巨大女的圖片非常簡單了! 品質也提高!<title>2</ti
 
 2009-9-22 19:28 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![20090922-185528.jpg](static/image/common/none.gif "20090922-185528.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![20090922-185528.jpg](static/image/common/none.gif "20090922-185528.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 大家好. 我感謝大家的支持!
 
 第二次試作圖片.
+
 普通的房間中試著設置了「自動生成城市Map」.
-我想這個「縮小男」人的場面能使用.<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+我想這個「縮小男」人的場面能使用. 
 
 # 4
 
- <ignore_js_op>[20090923-220520.jpg](forum.php?mod=attachment&aid=MTMzNTV8OGViY2RjOTR8MTYwMzg3ODI3N3wxODIzMHw0OTEz&nothumb=yes) *(422.69 KB, 下載次數: 1)*
+<ignore_js_op>[20090923-220520.jpg](forum.php?mod=attachment&aid=MTMzNTV8OGViY2RjOTR8MTYwMzg3ODI3N3wxODIzMHw0OTEz&nothumb=yes) *(422.69 KB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=MTMzNTV8OGViY2RjOTR8MTYwMzg3ODI3N3wxODIzMHw0OTEz&nothumb=yes)
 

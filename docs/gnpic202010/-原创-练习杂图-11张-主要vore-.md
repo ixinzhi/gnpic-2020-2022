@@ -4,16 +4,17 @@
 
 TID：29404
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 前一阵子试着转变了下画风，最后还是决定转回来，留下了一个烂尾的短漫和几个练习。。。
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[Ironfan.PNG](forum.php?mod=attachment&aid=ODQ5MTN8OTAxNDRmOTh8MTYwMzgyNTE5N3wxODIzMHwyOTQwNA%3D%3D&nothumb=yes) *(342.49 KB, 下載次數: 4)*
+<ignore_js_op>[Ironfan.PNG](forum.php?mod=attachment&aid=ODQ5MTN8OTAxNDRmOTh8MTYwMzgyNTE5N3wxODIzMHwyOTQwNA%3D%3D&nothumb=yes) *(342.49 KB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=ODQ5MTN8OTAxNDRmOTh8MTYwMzgyNTE5N3wxODIzMHwyOTQwNA%3D%3D&nothumb=yes)
 
@@ -79,19 +80,22 @@ TID：29404
 
 2020-9-1 11:09 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![p1.PNG](img/c13f084d56dc5a0eda7f4389e83ac9e0.png "p1.PNG")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![p1.PNG](img/c13f084d56dc5a0eda7f4389e83ac9e0.png "p1.PNG")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > [jy24310350 發表於 2020-9-2 05:58](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=446730&ptid=29404)
+
 > 我觉得不错，圈子里还是需要各种画风的。支持楼主！
 
 感谢。不过我目前的画风还是第二第三张那种。下面那些有对话的图的画风不会再用了。
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 4
 
 > [feiyangfy 發表於 2020-10-1 13:14](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=448773&ptid=29404)
+
 > 感觉画风正在逐渐成型了
 
 其实后面又逐渐不稳了。。。

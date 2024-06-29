@@ -4,21 +4,25 @@
 
 TID：23898
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 nimcho001122 於 2017-10-1 10:31 編輯*
 
 owo**メルフィ今天沒有辦法全部上載![](static/image/smiley/girl/31.png)**
+
 **好消息,**黒天姫**答應了我出**せく☆ぷれ!!!**第二集**
+
 **http://www.giantessnight.com/gnforum2012/forum.php?mod=viewthread&tid=23162&extra=&page=1**
+
 せく☆ぷれ**第一篇的文章,如有感到興趣希望大家支持漫畫owo~**
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[2.png](forum.php?mod=attachment&aid=Njk1ODh8MzdiOWYyMzR8MTYwMzg1Mzg5OXwxODIzMHwyMzg5OA%3D%3D&nothumb=yes) *(549.04 KB, 下載次數: 34)*
+<ignore_js_op>[2.png](forum.php?mod=attachment&aid=Njk1ODh8MzdiOWYyMzR8MTYwMzg1Mzg5OXwxODIzMHwyMzg5OA%3D%3D&nothumb=yes) *(549.04 KB, 下載次數: 34)*
 
 [下載附件](forum.php?mod=attachment&aid=Njk1ODh8MzdiOWYyMzR8MTYwMzg1Mzg5OXwxODIzMHwyMzg5OA%3D%3D&nothumb=yes)
 
@@ -120,13 +124,16 @@ owo**メルフィ今天沒有辦法全部上載![](static/image/smiley/girl/31.p
 
 2017-10-1 10:29 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![17.png](img/2b06cb67d1de756beee31b1cb4a6e5f1.png "17.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![17.png](img/2b06cb67d1de756beee31b1cb4a6e5f1.png "17.png")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > [sikimori 發表於 2017-9-30 13:25](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=348426&ptid=23898)
+
 > はせく☆ぷれ!!!
+
 > 
+
 > 可惜沒有漢化啊，日文水平低下呢。。。
 
 [http://www.giantessnight.com/gnforum2012/forum.php?mod=viewthread&tid=23162&extra=&page=1](http://www.giantessnight.com/gnforum2012/forum.php?mod=viewthread&tid=23162&page=5#pid348460) ![](static/image/smiley/girl/08.png)

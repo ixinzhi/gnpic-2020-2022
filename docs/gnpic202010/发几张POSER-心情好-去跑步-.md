@@ -4,11 +4,12 @@
 
 TID：1915
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 商店街故事没什么灵感，发几幅以前的作品。呵呵
+
 有些地方破了，没调整好。
 
 <ignore_js_op>![](static/image/common/none.gif)
@@ -51,11 +52,12 @@ TID：1915
 
 2009-1-11 15:57 上傳
 
-[ *本帖最後由 chaos_ye 於 2009-1-11 22:22 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 chaos_ye 於 2009-1-11 22:22 編輯* ] 
 
 # 2
 
 继续...
+
 <ignore_js_op>![](static/image/common/none.gif)
 
 **Render 6.jpg** *(155.47 KB, 下載次數: 2)*

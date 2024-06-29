@@ -4,7 +4,7 @@
 
 TID：5612
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ Here are some Images I took while playing around with poser.
 
 下面是一些图片玩耍时我曾与波塞尔左右。
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[2ndgts-loli-1.png](forum.php?mod=attachment&aid=MTQ3OTF8Zjc0NDg1NjF8MTYwMzg4MTM0M3wxODIzMHw1NjEy&nothumb=yes) *(1.15 MB, 下載次數: 7)*
+<ignore_js_op>[2ndgts-loli-1.png](forum.php?mod=attachment&aid=MTQ3OTF8Zjc0NDg1NjF8MTYwMzg4MTM0M3wxODIzMHw1NjEy&nothumb=yes) *(1.15 MB, 下載次數: 7)*
 
 [下載附件](forum.php?mod=attachment&aid=MTQ3OTF8Zjc0NDg1NjF8MTYwMzg4MTM0M3wxODIzMHw1NjEy&nothumb=yes)
 

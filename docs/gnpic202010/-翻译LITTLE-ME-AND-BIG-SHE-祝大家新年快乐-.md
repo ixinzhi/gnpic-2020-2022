@@ -4,39 +4,61 @@
 
 TID：6586
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 > 很喜欢这作品啊，貌似还没见过中文版
+
 > ![](static/image/smiley/bigface/10.gif)
+
 > 本人水平有限，不足的地方就多多包涵吧……
+
 > 
+
 > (PS：打包上传不会弄55555)
+
 > 
+
 > 第二天补充：
+
 > 看了大家的回复，首先谢谢大家的支持。
+
 >  原本的想法是每张单独收费的话比较贵，而且大家看着会有些麻烦
+
 > 所以打算回复给看预览，付费给看全部，结果貌似弄巧成拙了
+
 > ![](static/image/smiley/bigface/57.gif) 现在已经取消了回复可见……
+
 > 至于付费嘛，我觉得10G不算贵![](static/image/smiley/bigface/23.gif)
+
 > 
+
 > 还有看大家的回复，貌似预览图看不到？这个我真是不会弄，希望懂的朋友短信息教教我
+
 > 另外此作为MINI系，MINI系无爱的朋友就不要破费了
+
 > 预览：
+
 > <ignore_js_op>![](img/04973b6867110c8bbdc5f69ae4bb3cff.png)
+
 > 
+
 > **LM&BS06.jpg** *(285.85 KB, 下載次數: 85)*
+
 > 
+
 > [下載附件](forum.php?mod=attachment&aid=MTcxMDN8YmZiMjlmYTF8MTYwMzg1NjEzNnwxODIzMHw2NTg2&nothumb=yes)
+
 > 
+
 > 2010-2-8 19:08 上傳</ignore_js_op>
 
-[ *本帖最後由 aligaduo 於 2010-2-9 09:30 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 aligaduo 於 2010-2-9 09:30 編輯* ] 
 
 # 2
 
- <ignore_js_op>[LM&BS01.jpg](forum.php?mod=attachment&aid=MTcwOTh8YmFlMjBlN2N8MTYwMzg1NjEzNnwxODIzMHw2NTg2&nothumb=yes) *(224.03 KB, 下載次數: 482)*
+<ignore_js_op>[LM&BS01.jpg](forum.php?mod=attachment&aid=MTcwOTh8YmFlMjBlN2N8MTYwMzg1NjEzNnwxODIzMHw2NTg2&nothumb=yes) *(224.03 KB, 下載次數: 482)*
 
 [下載附件](forum.php?mod=attachment&aid=MTcwOTh8YmFlMjBlN2N8MTYwMzg1NjEzNnwxODIzMHw2NTg2&nothumb=yes)
 

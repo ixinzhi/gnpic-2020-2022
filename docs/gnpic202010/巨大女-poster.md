@@ -4,18 +4,19 @@
 
 TID：7621
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 唔知有無人用過呢個軟件...哈
+
 [http://computer.discuss.com.hk/v ... 26amp%3Btypeid%3D25](http://computer.discuss.com.hk/viewthread.php?tid=11555548&extra=page%3D1%26amp%3Bfilter%3Dtype%26amp%3Btypeid%3D25)
 
-[ *本帖最後由 martin82 於 2010-4-22 19:30 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 martin82 於 2010-4-22 19:30 編輯* ] 
 
 # 2
 
- <ignore_js_op>[1.JPG](forum.php?mod=attachment&aid=MTk5MTZ8MWMxZDA4NTh8MTYwMzg4MDEwM3wxODIzMHw3NjIx&nothumb=yes) *(24.66 KB, 下載次數: 2)*
+<ignore_js_op>[1.JPG](forum.php?mod=attachment&aid=MTk5MTZ8MWMxZDA4NTh8MTYwMzg4MDEwM3wxODIzMHw3NjIx&nothumb=yes) *(24.66 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=MTk5MTZ8MWMxZDA4NTh8MTYwMzg4MDEwM3wxODIzMHw3NjIx&nothumb=yes)
 

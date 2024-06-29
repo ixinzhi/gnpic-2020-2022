@@ -4,18 +4,22 @@
 
 TID：27469
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 广翼云 於 2019-10-7 13:12 編輯*
 
 画师：まるしゃも 推特@marusyamo
+
 推特地址：[https://twitter.com/marusyamo](https://twitter.com/marusyamo)
 
 大家好，这里是广翼云！
+
 这是まるしゃも在10月6日在推特发表的《resize me！》的6页同人作品，看到之后感觉很有意思就试着自己汉化了一下。
+
 依然是渣日语和渣技术力的结合，如果能负负得正就好了![](static/image/smiley/girl/21.png)
+
 如果有错误的话请指出！如果撞车的话也请告诉我，我会自删的！
 
 <ignore_js_op>![](img/66957cb253b44b254e5999d1e76440f3.png)</ignore_js_op> **01.jpg** *(236.84 KB, 下載次數: 13)*
@@ -53,9 +57,13 @@ TID：27469
 [下載附件](forum.php?mod=attachment&aid=Nzk4NTh8NjQwNWUwMTN8MTYwMzgzNjk1NnwxODIzMHwyNzQ2OQ%3D%3D&nothumb=yes)
 
 2019-10-7 12:49 上傳 
+
 这边贴一个百度网盘的分流：链接：[https://pan.baidu.com/s/181a7YdMYVJcVEj1Ch9nuEw](https://pan.baidu.com/s/181a7YdMYVJcVEj1Ch9nuEw)
+
 提取码：6sle
+
 如果失效的话也请及时告诉我！
+
 希望大家看得开心！
 
 ps：这里男女主的名字翻译参考了神奇阿空（gn@zhakong ）的resizeme文本翻译，非常感谢！

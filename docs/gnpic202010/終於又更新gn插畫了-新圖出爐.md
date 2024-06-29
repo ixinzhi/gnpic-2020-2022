@@ -4,7 +4,7 @@
 
 TID：22575
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -12,11 +12,11 @@ TID：22575
 
 小人: 我在腳下阿 !!!! 
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[女巨人插畫.jpg](forum.php?mod=attachment&aid=NjY3OTl8NmExNzFiMWN8MTYwMzg1NjAwOHwxODIzMHwyMjU3NQ%3D%3D&nothumb=yes) *(2.11 MB, 下載次數: 66)*
+<ignore_js_op>[女巨人插畫.jpg](forum.php?mod=attachment&aid=NjY3OTl8NmExNzFiMWN8MTYwMzg1NjAwOHwxODIzMHwyMjU3NQ%3D%3D&nothumb=yes) *(2.11 MB, 下載次數: 66)*
 
 [下載附件](forum.php?mod=attachment&aid=NjY3OTl8NmExNzFiMWN8MTYwMzg1NjAwOHwxODIzMHwyMjU3NQ%3D%3D&nothumb=yes)
 

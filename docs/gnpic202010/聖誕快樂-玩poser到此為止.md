@@ -4,17 +4,17 @@
 
 TID：8977
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 這是這一年最後一次弄poser，有機會下一次再弄
 
-[ *本帖最後由 wongvict 於 2010-12-25 04:54 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 wongvict 於 2010-12-25 04:54 編輯* ] 
 
 # 2
 
- <ignore_js_op>[27.jpg](forum.php?mod=attachment&aid=MjI0NTl8ZDlkYzdkZTZ8MTYwMzg3ODQ3NXwxODIzMHw4OTc3&nothumb=yes) *(133.36 KB, 下載次數: 8)*
+<ignore_js_op>[27.jpg](forum.php?mod=attachment&aid=MjI0NTl8ZDlkYzdkZTZ8MTYwMzg3ODQ3NXwxODIzMHw4OTc3&nothumb=yes) *(133.36 KB, 下載次數: 8)*
 
 [下載附件](forum.php?mod=attachment&aid=MjI0NTl8ZDlkYzdkZTZ8MTYwMzg3ODQ3NXwxODIzMHw4OTc3&nothumb=yes)
 
@@ -80,15 +80,15 @@ TID：8977
 
 2010-12-25 04:51 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![37.jpg](img/84aff41cb0a2c6e2c03c45034b15360e.png "37.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![37.jpg](img/84aff41cb0a2c6e2c03c45034b15360e.png "37.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
-再發預覽圖![](static/image/smiley/bigface/53.gif)<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+再發預覽圖![](static/image/smiley/bigface/53.gif) 
 
 # 4
 
- <ignore_js_op>[38.jpg](forum.php?mod=attachment&aid=MjI0NzB8ZTUzMTAwNTV8MTYwMzg3ODQ3NXwxODIzMHw4OTc3&nothumb=yes) *(76.78 KB, 下載次數: 2)*
+<ignore_js_op>[38.jpg](forum.php?mod=attachment&aid=MjI0NzB8ZTUzMTAwNTV8MTYwMzg3ODQ3NXwxODIzMHw4OTc3&nothumb=yes) *(76.78 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=MjI0NzB8ZTUzMTAwNTV8MTYwMzg3ODQ3NXwxODIzMHw4OTc3&nothumb=yes)
 

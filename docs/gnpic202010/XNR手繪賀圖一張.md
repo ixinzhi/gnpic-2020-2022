@@ -4,7 +4,7 @@
 
 TID：11842
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -23,15 +23,16 @@ TID：11842
 （点击图片查看原尺寸大图）
 
 很早就画完了，但丁生日这天来发布，细节不足之处还请海涵，希望大家喜欢！
+
 （参考了一些同人图来创作的，考究不周的地方还请见谅）
 
 最后还是说一声：但丁生日快乐~！
 
-[ *本帖最後由 xnr 於 2012-2-16 19:10 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2012-2-16 19:10 編輯* ] 
 
 # 2
 
-回楼上，这不是猫女，是《全职猎人》里的 ネフェルピトー<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+回楼上，这不是猫女，是《全职猎人》里的 ネフェルピトー 
 
 # 3
 

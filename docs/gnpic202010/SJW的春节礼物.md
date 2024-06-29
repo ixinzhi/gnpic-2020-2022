@@ -4,16 +4,17 @@
 
 TID：6672
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 　　近一个月之内做的十五张练手图，值此佳节送上。
-　　春节在即，都要快乐快乐滴![](static/image/smiley/bigface/22.gif)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+　　春节在即，都要快乐快乐滴![](static/image/smiley/bigface/22.gif) 
 
 # 2
 
- <ignore_js_op>[人&#31867;有&#38590;了73.jpg](forum.php?mod=attachment&aid=MTczMzB8Mzg0YjRkNjh8MTYwMzg4MDM4MnwxODIzMHw2Njcy&nothumb=yes) *(423.79 KB, 下載次數: 6)*
+<ignore_js_op>[人&#31867;有&#38590;了73.jpg](forum.php?mod=attachment&aid=MTczMzB8Mzg0YjRkNjh8MTYwMzg4MDM4MnwxODIzMHw2Njcy&nothumb=yes) *(423.79 KB, 下載次數: 6)*
 
 [下載附件](forum.php?mod=attachment&aid=MTczMzB8Mzg0YjRkNjh8MTYwMzg4MDM4MnwxODIzMHw2Njcy&nothumb=yes)
 
@@ -103,49 +104,64 @@ TID：6672
 
 2010-2-13 19:51 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![人&#31867;有&#38590;了87.jpg](img/91d09702e0e86d320838f79a44289377.png "人&#31867;有&#38590;了87.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![人&#31867;有&#38590;了87.jpg](img/91d09702e0e86d320838f79a44289377.png "人&#31867;有&#38590;了87.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > 原帖由 *killer9999* 於 2010-2-13 20:11 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=89514&ptid=6672)
+
 > 高水平的巨作呀...
+
 > 
+
 > 除了79,83-86之外![](static/image/smiley/bigface/24.gif)
 
-我觉得83-86这几张还行啊![](static/image/smiley/bigface/3.gif)<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+我觉得83-86这几张还行啊![](static/image/smiley/bigface/3.gif) 
 
 # 4
 
 > 原帖由 *killer9999* 於 2010-2-13 20:28 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=89519&ptid=6672)
+
 > 不行呀,那看起來根本是平面![](static/image/smiley/bigface/10.gif)
 
-……我很想知道怎么使我的图片更有立体感~<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+……我很想知道怎么使我的图片更有立体感~ 
 
 # 5
 
 > 原帖由 *alice* 於 2010-2-13 21:11 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=89525&ptid=6672)
+
 > 背景暗淡的话，GTS的肤色也应该跟背景一样又冷又暗的感觉才配合吧
 
-我正在研究并测试Photoshop里的“色阶”、“曲线”等工具~<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+我正在研究并测试Photoshop里的“色阶”、“曲线”等工具~ 
 
 # 6
 
 > 原帖由 *Dante* 於 2010-2-13 23:00 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=89543&ptid=6672)
+
 > .
+
 > 改圖技術要鑽研的話，已經是專業等級的領域了。
+
 > 業餘人士就先憑喜好與滿足程度去作吧，累積的經驗一多也是能孵出好作品的。
+
 > 
+
 > 不過這一組圖的第一眼印象確實是好壞差很遠。![](static/image/smiley/bigface/64.gif)
+
 > 做得好的真的是不錯，而某些 ...
 
 　　但大亲临，在下恭贺新春快乐。
-　　话说83、84和85、86的确做得急了，分别在一天内完成……<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+　　话说83、84和85、86的确做得急了，分别在一天内完成…… 
 
 # 7
 
 > 原帖由 *xnr* 於 2010-2-13 23:58 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=89554&ptid=6672)
+
 > 感觉你作图技术进步很大，尤其是抠图越来越好，破坏效果也有很大进步。
+
 > 
+
 > 做真人合成图，首先素材就很重要，素材不够好的话，技术上是很 ...
 
 嗯。顺便建议你用Mask Pro 4.0抠图。试试效果怎样。

@@ -4,17 +4,17 @@
 
 TID：10959
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 见[http://www.gts-goddess.com/forum/](http://www.gts-goddess.com/forum/)
 
-[ *本帖最後由 boygtsboy 於 2011-9-27 10:15 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 boygtsboy 於 2011-9-27 10:15 編輯* ] 
 
 # 2
 
- <ignore_js_op>[0b7c774be870898b8813994a (0;00;00;00).jpg](forum.php?mod=attachment&aid=MjYyNzN8ZGVjYWJiMzd8MTYwMzg3MTA1OHwxODIzMHwxMDk1OQ%3D%3D&nothumb=yes) *(94.92 KB, 下載次數: 20)*
+<ignore_js_op>[0b7c774be870898b8813994a (0;00;00;00).jpg](forum.php?mod=attachment&aid=MjYyNzN8ZGVjYWJiMzd8MTYwMzg3MTA1OHwxODIzMHwxMDk1OQ%3D%3D&nothumb=yes) *(94.92 KB, 下載次數: 20)*
 
 [下載附件](forum.php?mod=attachment&aid=MjYyNzN8ZGVjYWJiMzd8MTYwMzg3MTA1OHwxODIzMHwxMDk1OQ%3D%3D&nothumb=yes)
 
@@ -98,26 +98,27 @@ TID：10959
 
 2011-9-27 10:12 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![T2280JXeNaXXXXXXXX_!!273007124 (0;00;12;09).jpg](img/6c51cd70480a9f1581b0e7f260f24f2c.png "T2280JXeNaXXXXXXXX_!!273007124 (0;00;12;09).jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![T2280JXeNaXXXXXXXX_!!273007124 (0;00;12;09).jpg](img/6c51cd70480a9f1581b0e7f260f24f2c.png "T2280JXeNaXXXXXXXX_!!273007124 (0;00;12;09).jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 顺便求小人素材,最好带通道或单色键控的
 
-[ *本帖最後由 boygtsboy 於 2011-9-23 21:55 編輯* ]<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 boygtsboy 於 2011-9-23 21:55 編輯* ] 
 
 # 4
 
-没素材,小人全是别人的合成图里找的 所以暂时没办法清晰<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+没素材,小人全是别人的合成图里找的 所以暂时没办法清晰 
 
 # 5
 
 大家有什么好的素材互相交流下吧,呵呵
-还可帮忙按要求P图~<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+还可帮忙按要求P图~ 
 
 # 6
 
-顺便转一张CITY上的图(最后一张,个人比较喜欢)<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+顺便转一张CITY上的图(最后一张,个人比较喜欢) 
 
 # 7
 

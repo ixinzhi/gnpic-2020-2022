@@ -4,7 +4,7 @@
 
 TID：11979
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ Hey everyone! Its been quite some time since I put up anything. And I apologize 
 
 嘿大家！已经相当长的一段时间，因为我放了什么。而我对此表示道歉。我倾向于变得非常懒惰。我希望你能享受这些说对不起。大部分都是旧的，但在过去5我刚刚完成前做了几个小时。
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[Real-GTS-1.jpg](forum.php?mod=attachment&aid=Mjc5NzZ8M2JlZTZiNTJ8MTYwMzg3NTU1M3wxODIzMHwxMTk3OQ%3D%3D&nothumb=yes) *(435.79 KB, 下載次數: 10)*
+<ignore_js_op>[Real-GTS-1.jpg](forum.php?mod=attachment&aid=Mjc5NzZ8M2JlZTZiNTJ8MTYwMzg3NTU1M3wxODIzMHwxMTk3OQ%3D%3D&nothumb=yes) *(435.79 KB, 下載次數: 10)*
 
 [下載附件](forum.php?mod=attachment&aid=Mjc5NzZ8M2JlZTZiNTJ8MTYwMzg3NTU1M3wxODIzMHwxMTk3OQ%3D%3D&nothumb=yes)
 
@@ -132,17 +132,17 @@ YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="s
 
 2012-3-12 13:20 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![Real-GTS-19.jpg](img/a8c09b5a386e806c2f8f13a277f094fd.png "Real-GTS-19.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![Real-GTS-19.jpg](img/a8c09b5a386e806c2f8f13a277f094fd.png "Real-GTS-19.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 last set
 
-![](static/image/smiley/big/music.gif)<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+![](static/image/smiley/big/music.gif) 
 
 # 4
 
- <ignore_js_op>[Real-GTS-20.jpg](forum.php?mod=attachment&aid=Mjc5OTV8MTFlODY2Zjd8MTYwMzg3NTU1M3wxODIzMHwxMTk3OQ%3D%3D&nothumb=yes) *(564.39 KB, 下載次數: 8)*
+<ignore_js_op>[Real-GTS-20.jpg](forum.php?mod=attachment&aid=Mjc5OTV8MTFlODY2Zjd8MTYwMzg3NTU1M3wxODIzMHwxMTk3OQ%3D%3D&nothumb=yes) *(564.39 KB, 下載次數: 8)*
 
 [下載附件](forum.php?mod=attachment&aid=Mjc5OTV8MTFlODY2Zjd8MTYwMzg3NTU1M3wxODIzMHwxMTk3OQ%3D%3D&nothumb=yes)
 

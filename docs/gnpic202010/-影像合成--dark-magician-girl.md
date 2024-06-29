@@ -4,18 +4,19 @@
 
 TID：14805
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本文章最後由 zaku3333333333 於 2013-7-25 01:19 編輯*
 
 dark magician girl
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[36163644_p3.png](forum.php?mod=attachment&aid=MzUyOTd8NWM2ODQ2Mzd8MTYwMzg1MjQwOXwxODIzMHwxNDgwNQ%3D%3D&nothumb=yes) *(2.51 MB, 下載次數: 94)*
+<ignore_js_op>[36163644_p3.png](forum.php?mod=attachment&aid=MzUyOTd8NWM2ODQ2Mzd8MTYwMzg1MjQwOXwxODIzMHwxNDgwNQ%3D%3D&nothumb=yes) *(2.51 MB, 下載次數: 94)*
 
 [下載附件](forum.php?mod=attachment&aid=MzUyOTd8NWM2ODQ2Mzd8MTYwMzg1MjQwOXwxODIzMHwxNDgwNQ%3D%3D&nothumb=yes)
 

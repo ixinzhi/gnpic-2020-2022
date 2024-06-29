@@ -4,17 +4,17 @@
 
 TID：15085
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本文章最後由 qyj1213 於 2013-11-24 15:55 編輯*
 
-直接上图！2M<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+直接上图！2M 
 
 # 2
 
- <ignore_js_op>[a1.jpg](forum.php?mod=attachment&aid=MzYxMTF8NDJlZGI3NWN8MTYwMzg2MzIxM3wxODIzMHwxNTA4NQ%3D%3D&nothumb=yes) *(1.58 MB, 下載次數: 53)*
+<ignore_js_op>[a1.jpg](forum.php?mod=attachment&aid=MzYxMTF8NDJlZGI3NWN8MTYwMzg2MzIxM3wxODIzMHwxNTA4NQ%3D%3D&nothumb=yes) *(1.58 MB, 下載次數: 53)*
 
 [下載附件](forum.php?mod=attachment&aid=MzYxMTF8NDJlZGI3NWN8MTYwMzg2MzIxM3wxODIzMHwxNTA4NQ%3D%3D&nothumb=yes)
 
@@ -80,11 +80,11 @@ TID：15085
 
 2013-11-24 15:54 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![annie14.jpg](img/365fb3b79b7262ade14cda2185668d47.png "annie14.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![annie14.jpg](img/365fb3b79b7262ade14cda2185668d47.png "annie14.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
-谢谢大家，我会继续努力的，争取做出更多的作品。前面三张是用3dmax渲染的,最后一张是poser渲的，<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+谢谢大家，我会继续努力的，争取做出更多的作品。前面三张是用3dmax渲染的,最后一张是poser渲的， 
 
 # 4
 

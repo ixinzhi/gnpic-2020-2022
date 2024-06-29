@@ -4,18 +4,24 @@
 
 TID：26460
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 闲余ノ 於 2019-4-12 11:37 編輯*
 
 **作者是推特上的NAndeyanenGTS**
+
 **巨大的BB酱1-8（作者未更完）**
+
 属性 足控 giga grow 城市 3d  轻残
+
 因为这种修图简直活在梦里，直接白框，图配文
+
 这个作者还有好几个故事（好像是放尿play 还有个足控本）  慢慢搞吧（有空的话）![](static/image/smiley/bigface/41.gif)
+
 直接上图 懒得搞链接了 顺便一提我另个主题更新了
+
 <ignore_js_op>![](img/b78007d00fb302a6a5eb8f820871f201.png)
 
 **01.jpg** *(209.33 KB, 下載次數: 41)*
@@ -105,7 +111,9 @@ TID：26460
 2019-2-23 14:15 上傳
 
 楼主节操何在 ）
+
 （点赞的话应该有后续）
+
 <ignore_js_op>![](img/d3e7f7d935eae5bba6c018e487fd1232.png)
 
 **下载 (2).jpg** *(11.77 KB, 下載次數: 0)*
@@ -114,13 +122,14 @@ TID：26460
 
 2019-2-23 14:15 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 *本帖最後由 闲余ノ 於 2019-2-23 23:21 編輯*
 
 我不配有回复 我竟然还是2楼（呜哇哇啊啊啊）![](static/image/smiley/bigface/62.gif)
+
 <ignore_js_op>![](img/c4abcc548ccaf843bb67d59f517610e3.png)
 
 **11.jpg** *(202.11 KB, 下載次數: 42)*
@@ -261,7 +270,7 @@ TID：26460
 
 （真）未完待续…… 
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
@@ -277,11 +286,12 @@ TID：26460
 
 ![](static/image/smiley/bigface/52.gif)...........（沙雕图 纯属娱乐 dc粉别喷我 虽然我是漫威粉）
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
 **凉风青叶的VR游戏？**
+
 **属性 giga grow 城市 破坏 足控** <ignore_js_op>![](img/e9800f1cc2065ed2c2c31d2d000bc06c.png)
 
 **00.jpg** *(151.88 KB, 下載次數: 0)*
@@ -292,17 +302,18 @@ TID：26460
 
 待更……
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
 *本帖最後由 闲余ノ 於 2019-3-18 20:46 編輯*
 
 最近成谜自走棋无法自拔......（一时下棋一时爽 一直下棋一直爽），
+
 现在就吃了一把鸡,这游戏真的有毒......（骑士最高上了7，现在骑士4真的难受）现订个小目标，上主教 <ignore_js_op>![](img/eefb47c01c7491bd79b8d0e186a38eb6.png)
 
 **u=1879629553,589796333&amp;fm=26&amp;gp=0.jpg** *(26.27 KB, 下載次數: 1)*
@@ -312,12 +323,19 @@ TID：26460
 2019-2-27 11:52 上傳
 
 所以就这么点....
+
 **凉风青叶的VR游戏？
+
 属性 giga grow 城市 破坏 足控 萌妹** **作者NAndeyanenGTS**
+
 **一件打包链接：[https://share.weiyun.com/5CS9m6Q](https://share.weiyun.com/5CS9m6Q)**
+
 **密码：6aedmp**
+
 **解压密码：xianyuc**
+
 **前面的bb酱等作者更完再打包，不然太麻烦。** 
+
 <ignore_js_op>![](img/b8bc06031945db46a7fd7f7627ddc440.png)
 
 **00.jpg** *(151.88 KB, 下載次數: 12)*
@@ -416,13 +434,14 @@ TID：26460
 
 27楼后续
 
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 7
 
 *本帖最後由 闲余ノ 於 2019-3-15 17:50 編輯*
 
 还有20多张完结![](static/image/smiley/bigface/55.gif)
+
 <ignore_js_op>![](img/f47a212e08a42172a086f5d7d20311e8.png)
 
 **2.jpg** *(26.03 KB, 下載次數: 1)*
@@ -605,21 +624,24 @@ TID：26460
 
 不说了再去刷一遍new game46楼后续
 
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 8
 
 > [喵帕斯 發表於 2019-3-1 17:53](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=398734&ptid=26460)
+
 > 有没有人度盘分流下鸭，手机看真的麻烦
 
 我更新完会微云分享的![](static/image/smiley/girl/22.png)
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 9
 
 *本帖最後由 闲余ノ 於 2019-3-16 19:14 編輯*
 
 **21楼一键打包**
+
 <ignore_js_op>![](img/068dd758f7c85ee9a7285df712780aaa.png)
 
 **01.jpg** *(115.5 KB, 下載次數: 0)*
@@ -629,6 +651,7 @@ TID：26460
 2019-3-15 18:03 上傳
 
 这……这是替身攻击……Σ(っ °Д °;)っ
+
 **下面正文**
 
 <ignore_js_op>![](img/ff5625e976a0fbd18ddabf19dbe45567.png)
@@ -823,27 +846,32 @@ TID：26460
 
 2019-3-15 17:44 上傳
 
-<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 10
 
- <ignore_js_op>[03.jpg](forum.php?mod=attachment&aid=NzcwOTd8MTMwZGQ2ZTB8MTYwMzgzNzA3MHwxODIzMHwyNjQ2MA%3D%3D&nothumb=yes) *(150.4 KB, 下載次數: 2)*
+<ignore_js_op>[03.jpg](forum.php?mod=attachment&aid=NzcwOTd8MTMwZGQ2ZTB8MTYwMzgzNzA3MHwxODIzMHwyNjQ2MA%3D%3D&nothumb=yes) *(150.4 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=NzcwOTd8MTMwZGQ2ZTB8MTYwMzgzNzA3MHwxODIzMHwyNjQ2MA%3D%3D&nothumb=yes)
 
 2019-3-15 18:38 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![03.jpg](img/ad5a5654f0753922b6e88bbcc7697fb3.png "03.jpg")](javascript:;)</ignore_js_op> <title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![03.jpg](img/ad5a5654f0753922b6e88bbcc7697fb3.png "03.jpg")](javascript:;)</ignore_js_op>  
 
 # 11
 
 *本帖最後由 闲余ノ 於 2019-3-18 21:11 編輯*
 
 **鹿島的蹂躪**
+
 **作者NAndeyanenGTS**
+
 **翻译 嵌字 闲余ノ**
+
 **屬性 黑絲 giga 城市 破壞 阴谋**
+
 嗯……![](static/image/smiley/girl/04.png)这个次是舰娘篇 ，鹿岛酱登场![](static/image/smiley/girl/04.png)再过几天可能就没时间了，因为……只狼发售了![](static/image/smiley/girl/29.png)
+
 这是宫崎老贼的阴谋 <ignore_js_op>![](img/ae6bc4204765bb704b7bbea352a08683.png)
 
 **下载 (1).jpg** *(17.63 KB, 下載次數: 0)*
@@ -853,7 +881,9 @@ TID：26460
 2019-3-18 20:22 上傳
 
 **链接：[https://share.weiyun.com/5Omj62l](https://share.weiyun.com/5Omj62l)**
+
 **密码：FumWkM**
+
 **解壓密碼：xianyuc** <ignore_js_op>![](img/96fc9bf3d17beac0b16d4b35288e53f4.png)
 
 **00.jpg** *(69.58 KB, 下載次數: 4)*
@@ -1054,55 +1084,66 @@ TID：26460
 
 2019-3-18 19:25 上傳
 
-<title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 12
 
 *本帖最後由 闲余ノ 於 2019-3-18 20:39 編輯*
 
 > [sillybat 發表於 2019-3-18 20:26](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=400651&ptid=26460)
+
 > 楼主实在是太强大了，不仅高产，质量还是一级棒
 
 不是……我就汉化……然后嵌个字，再偶尔修修图![](static/image/smiley/girl/28.png)
+
 就是身体有点顶不住![](static/image/smiley/girl/08.png)
-<title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 13
 
 *本帖最後由 闲余ノ 於 2019-3-18 21:02 編輯*
 
 > [浪里小黄 發表於 2019-3-17 23:05](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=400602&ptid=26460)
+
 > 竟然还有？！精了啊。。。
 
 本帖后续会一直更新，我还在的话![](static/image/smiley/girl/02.png)
-<title>14</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 14
 
 *本帖最後由 闲余ノ 於 2019-3-29 01:09 編輯*
 
 > [米莉恩 發表於 2019-3-24 19:21](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=401080&ptid=26460)
+
 > 我没看错的话  帖子里的资源在E站也有诶
+
 > 不过那边66页1300多张实在是翻得难受
+
 > 添加文字和相关整合 ...
 
 可是我看作者推特上也就200张左右……，能不能发个链接给我![](static/image/smiley/girl/28.png)谢谢啦好吧我又去看了一下640张，不过带文字估计就200张左右
+
 [https://twitter.com/NAndeyanenGTS/media](https://twitter.com/NAndeyanenGTS/media)
 
-<title>15</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 15
 
 *本帖最後由 闲余ノ 於 2019-3-29 16:20 編輯*
 
-**斑鸠小短篇**<title>16</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+**斑鸠小短篇** 
 
 # 16
 
 *本帖最後由 闲余ノ 於 2019-3-29 16:20 編輯*
 
 **斑鸠小短篇**
+
 **不小心发了两遍……**![](static/image/smiley/girl/12.png)
+
 <ignore_js_op>![](img/751212fa1784d084ee69f95e883aba3f.png)
 
 **01.jpg** *(98.62 KB, 下載次數: 12)*
@@ -1175,15 +1216,18 @@ TID：26460
 
 2019-3-29 16:16 上傳
 
-<title>17</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 17
 
 *本帖最後由 闲余ノ 於 2019-4-12 19:38 編輯*
 
 **矶风的****游玩**
+
 **30页**
+
 **对于最近的现象我申明一下，本人只会做一些自己感兴趣的内容，****不会听取任何人建议。**![](static/image/smiley/girl/10.png)
+
 <ignore_js_op>![](img/9b42dcea65dd4ba04df80778a3d5d1b6.png)
 
 **jojo.jpg** *(17.84 KB, 下載次數: 0)*
@@ -1193,9 +1237,13 @@ TID：26460
 2019-4-12 11:23 上傳
 
 **另外这个作者没有什么可更新了，停更一阵子。**
+
 **链接：[https://share.weiyun.com/5LLo7be](https://share.weiyun.com/5LLo7be)**
+
 **密码：LcMCyc**
+
 **解压密码：xianyuc**
+
 <ignore_js_op>![](img/27f4bf642bbad6d713e73b5201cb23d4.png)
 
 **01.jpg** *(122.2 KB, 下載次數: 1)*

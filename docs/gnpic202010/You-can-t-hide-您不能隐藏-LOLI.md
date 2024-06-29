@@ -4,7 +4,7 @@
 
 TID：10589
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -12,11 +12,11 @@ Its been awhile. Well I got a brand new computer. Now I can render even better q
 
 它已经一段时间。嗯，我得到了一个全新的电脑。现在，我可以呈现更优质的图像。我正在学习使用CINEMA 4D。不管怎么说享受我做的这些图像。
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[hideandseek1.png](forum.php?mod=attachment&aid=MjU1MTh8NjY3MDVmM2J8MTYwMzg3NjYwOHwxODIzMHwxMDU4OQ%3D%3D&nothumb=yes) *(359.47 KB, 下載次數: 3)*
+<ignore_js_op>[hideandseek1.png](forum.php?mod=attachment&aid=MjU1MTh8NjY3MDVmM2J8MTYwMzg3NjYwOHwxODIzMHwxMDU4OQ%3D%3D&nothumb=yes) *(359.47 KB, 下載次數: 3)*
 
 [下載附件](forum.php?mod=attachment&aid=MjU1MTh8NjY3MDVmM2J8MTYwMzg3NjYwOHwxODIzMHwxMDU4OQ%3D%3D&nothumb=yes)
 

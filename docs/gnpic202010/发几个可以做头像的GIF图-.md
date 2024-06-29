@@ -4,18 +4,19 @@
 
 TID：7562
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 本贴以后将陆续更新，图片正在收集中！
+
 先来三个！![](static/image/smiley/bigface/52.gif)
 
-[ *本帖最後由 j_lianwu 於 2010-4-19 12:20 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 j_lianwu 於 2010-4-19 12:20 編輯* ] 
 
 # 2
 
- <ignore_js_op>[j.gif](forum.php?mod=attachment&aid=MTk4MTF8YjIxZDkyZTZ8MTYwMzg4MDA3MHwxODIzMHw3NTYy&nothumb=yes) *(128.86 KB, 下載次數: 7)*
+<ignore_js_op>[j.gif](forum.php?mod=attachment&aid=MTk4MTF8YjIxZDkyZTZ8MTYwMzg4MDA3MHwxODIzMHw3NTYy&nothumb=yes) *(128.86 KB, 下載次數: 7)*
 
 [下載附件](forum.php?mod=attachment&aid=MTk4MTF8YjIxZDkyZTZ8MTYwMzg4MDA3MHwxODIzMHw3NTYy&nothumb=yes)
 
@@ -33,14 +34,15 @@ TID：7562
 
 2010-4-19 12:20 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-![W.gif](img/9e54df99174439ad42ccd65228fd3f77.png "W.gif")</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+![W.gif](img/9e54df99174439ad42ccd65228fd3f77.png "W.gif")</ignore_js_op>  
 
 # 3
 
 \(^o^)/~...![](static/image/smiley/bigface/12.gif)
+
 死动漫，一共就24集？气死人了！没看够！![](static/image/smiley/bigface/29.gif)
 
-[ *本帖最後由 j_lianwu 於 2010-4-20 16:08 編輯* ]<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 j_lianwu 於 2010-4-20 16:08 編輯* ] 
 
 # 4
 

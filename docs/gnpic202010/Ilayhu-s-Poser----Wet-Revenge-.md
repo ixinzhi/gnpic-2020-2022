@@ -4,7 +4,7 @@
 
 TID：6820
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -15,15 +15,16 @@ thanks in advance for your comments ![](static/image/smiley/bigface/11.gif)
 ilayhu
 
 (google translator)
+
 再次您好，我想在這裡張貼的宣傳圖片另一些從我的網站，希望你喜歡“微觀”：dctg51
 
 預先感謝您的意見：dctg11
 
-ilayhu<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ilayhu 
 
 # 2
 
- <ignore_js_op>[wetrev009 copy.jpg](forum.php?mod=attachment&aid=MTc2MTh8ZmUxNDgzNDd8MTYwMzg3OTQ3MnwxODIzMHw2ODIw&nothumb=yes) *(146.92 KB, 下載次數: 9)*
+<ignore_js_op>[wetrev009 copy.jpg](forum.php?mod=attachment&aid=MTc2MTh8ZmUxNDgzNDd8MTYwMzg3OTQ3MnwxODIzMHw2ODIw&nothumb=yes) *(146.92 KB, 下載次數: 9)*
 
 [下載附件](forum.php?mod=attachment&aid=MTc2MTh8ZmUxNDgzNDd8MTYwMzg3OTQ3MnwxODIzMHw2ODIw&nothumb=yes)
 
@@ -89,7 +90,7 @@ ilayhu<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="sty
 
 2010-2-23 10:06 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![wetrev087 copia.jpg](img/853b10b7bdc6d7065b48ff2f77409d20.png "wetrev087 copia.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![wetrev087 copia.jpg](img/853b10b7bdc6d7065b48ff2f77409d20.png "wetrev087 copia.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 

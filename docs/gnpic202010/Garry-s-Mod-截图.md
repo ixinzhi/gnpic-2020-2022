@@ -4,13 +4,14 @@
 
 TID：6744
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 这个算是原创图吧，为了玩这个花了我15美金。。。
 
 giantesscity上的高人介绍的，他有不少视频，做的还是不错的。
+
 [http://giantesscity.com/forum/viewtopic.php?f=14&t=62848](http://giantesscity.com/forum/viewtopic.php?f=14&t=62848)
 
 感觉自由度还是蛮高的，人物模型也不少。
@@ -24,8 +25,11 @@ giantesscity上的高人介绍的，他有不少视频，做的还是不错的�
 2010-2-19 02:46 上傳
 
 马上就要上班了，时间不多也没有太多研究，很多方面还不太熟悉，先放一些截图吧。
+
 想认真去研究的可以去steam游戏平台上搜索购买然后就可以下载安装了。
+
 买一个half-life 2 deathmatch 外加 Garry's Mod 总共15美金，相当于100人民币，这是最便宜的组合。
+
 购买前请先确认电脑有独立显卡，可以顺畅运行半条命这款游戏。
 
 摆了几个动作，用物理枪感觉很不方便，不知道有没有更好的摆动作的手段。
@@ -192,7 +196,7 @@ giantesscity上的高人介绍的，他有不少视频，做的还是不错的�
 
 2010-2-19 02:50 上傳
 
-[ *本帖最後由 xnr 於 2010-2-19 02:55 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2010-2-19 02:55 編輯* ] 
 
 # 2
 

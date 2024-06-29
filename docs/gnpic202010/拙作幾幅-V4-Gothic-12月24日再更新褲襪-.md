@@ -4,7 +4,7 @@
 
 TID：8945
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -12,11 +12,11 @@ TID：8945
 
 電腦再好一點的話就好了。
 
-[ *本帖最後由 wongvict 於 2010-12-23 23:32 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 wongvict 於 2010-12-23 23:32 編輯* ] 
 
 # 2
 
- <ignore_js_op>[1.jpg](forum.php?mod=attachment&aid=MjIzNjh8OWIwOGFkYjV8MTYwMzg1MTA2MnwxODIzMHw4OTQ1&nothumb=yes) *(362.05 KB, 下載次數: 15)*
+<ignore_js_op>[1.jpg](forum.php?mod=attachment&aid=MjIzNjh8OWIwOGFkYjV8MTYwMzg1MTA2MnwxODIzMHw4OTQ1&nothumb=yes) *(362.05 KB, 下載次數: 15)*
 
 [下載附件](forum.php?mod=attachment&aid=MjIzNjh8OWIwOGFkYjV8MTYwMzg1MTA2MnwxODIzMHw4OTQ1&nothumb=yes)
 
@@ -112,17 +112,17 @@ TID：8945
 
 2010-12-23 04:02 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![18.jpg](img/238c54742ae95f4c6f2884d87be0c85b.png "18.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![18.jpg](img/238c54742ae95f4c6f2884d87be0c85b.png "18.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 先佔樓，再發預覽圖![](static/image/smiley/bigface/68.gif)
 
-[ *本帖最後由 wongvict 於 2010-12-23 23:57 編輯* ]<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 wongvict 於 2010-12-23 23:57 編輯* ] 
 
 # 4
 
- <ignore_js_op>[5s.jpg](forum.php?mod=attachment&aid=MjIzNzR8YzRkMmRiMmF8MTYwMzg1MTA2MnwxODIzMHw4OTQ1&nothumb=yes) *(73.09 KB, 下載次數: 1)*
+<ignore_js_op>[5s.jpg](forum.php?mod=attachment&aid=MjIzNzR8YzRkMmRiMmF8MTYwMzg1MTA2MnwxODIzMHw4OTQ1&nothumb=yes) *(73.09 KB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=MjIzNzR8YzRkMmRiMmF8MTYwMzg1MTA2MnwxODIzMHw4OTQ1&nothumb=yes)
 
@@ -170,23 +170,23 @@ TID：8945
 
 2010-12-23 23:21 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![26.jpg](img/575b1ad8ca74e58b8feed4d86af68b3c.png "26.jpg")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![26.jpg](img/575b1ad8ca74e58b8feed4d86af68b3c.png "26.jpg")](javascript:;)</ignore_js_op>  
 
 # 5
 
 那有沒有什麼好pose可以改善一下表情?
 
-或者方法可以改善?<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+或者方法可以改善? 
 
 # 6
 
-不就是Poser啊![](static/image/smiley/bigface/47.gif)<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+不就是Poser啊![](static/image/smiley/bigface/47.gif) 
 
 # 7
 
 怎樣的恐怖?
 
-不具體給點建議，很難改善啊![](static/image/smiley/bigface/44.gif)<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+不具體給點建議，很難改善啊![](static/image/smiley/bigface/44.gif) 
 
 # 8
 
@@ -196,31 +196,31 @@ TID：8945
 
 做了一個漂白版，理論上![](static/image/smiley/bigface/60.gif)
 
-[ *本帖最後由 wongvict 於 2010-12-21 03:16 編輯* ]<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 wongvict 於 2010-12-21 03:16 編輯* ] 
 
 # 9
 
- <ignore_js_op>[7.jpg](forum.php?mod=attachment&aid=MjIzNzZ8NGExNDIyNDd8MTYwMzg1MTA2MnwxODIzMHw4OTQ1&nothumb=yes) *(483.53 KB, 下載次數: 0)*
+<ignore_js_op>[7.jpg](forum.php?mod=attachment&aid=MjIzNzZ8NGExNDIyNDd8MTYwMzg1MTA2MnwxODIzMHw4OTQ1&nothumb=yes) *(483.53 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=MjIzNzZ8NGExNDIyNDd8MTYwMzg1MTA2MnwxODIzMHw4OTQ1&nothumb=yes)
 
 2010-12-21 03:14 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![7.jpg](img/0f7406aa94e433bd8b6b88f8fc9eb1ea.png "7.jpg")](javascript:;)</ignore_js_op> <title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![7.jpg](img/0f7406aa94e433bd8b6b88f8fc9eb1ea.png "7.jpg")](javascript:;)</ignore_js_op>  
 
 # 10
 
 明白了，我真是個傻瓜。
 
-這本來是哥德裝，走的自然是陰沉系。<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+這本來是哥德裝，走的自然是陰沉系。 
 
 # 11
 
-遲些再解決裙子的問題，先上傳試驗圖幾幅<title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+遲些再解決裙子的問題，先上傳試驗圖幾幅 
 
 # 12
 
- <ignore_js_op>[15.jpg](forum.php?mod=attachment&aid=MjIzOTZ8MGI1ZDI4NDZ8MTYwMzg1MTA2MnwxODIzMHw4OTQ1&nothumb=yes) *(669.5 KB, 下載次數: 0)*
+<ignore_js_op>[15.jpg](forum.php?mod=attachment&aid=MjIzOTZ8MGI1ZDI4NDZ8MTYwMzg1MTA2MnwxODIzMHw4OTQ1&nothumb=yes) *(669.5 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=MjIzOTZ8MGI1ZDI4NDZ8MTYwMzg1MTA2MnwxODIzMHw4OTQ1&nothumb=yes)
 
@@ -228,7 +228,7 @@ TID：8945
 
 裙子穿透了，動態衣服比較難設定
 
-[![裙子穿透了，動態衣服比較難設定](img/d975dedc4efb140941bf2aab51379672.png "裙子穿透了，動態衣服比較難設定")](javascript:;)</ignore_js_op> <title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![裙子穿透了，動態衣服比較難設定](img/d975dedc4efb140941bf2aab51379672.png "裙子穿透了，動態衣服比較難設定")](javascript:;)</ignore_js_op>  
 
 # 13
 

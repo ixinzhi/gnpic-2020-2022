@@ -4,7 +4,7 @@
 
 TID：2671
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -15,13 +15,14 @@ I'm starting to really get the hang of this. I hope you enjoy the progress I'm m
 我开始真正的坑了这一点。我希望你喜欢我的进展作出。
 
 Poser L 58-82
+
 [http://www.megaupload.com/?d=DKPRZ7CQ](http://www.megaupload.com/?d=DKPRZ7CQ)
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[PoserL58.png](forum.php?mod=attachment&aid=ODI1MnxhZDM1YTdmN3wxNjAzODgwMzM1fDE4MjMwfDI2NzE%3D&nothumb=yes) *(260.49 KB, 下載次數: 2)*
+<ignore_js_op>[PoserL58.png](forum.php?mod=attachment&aid=ODI1MnxhZDM1YTdmN3wxNjAzODgwMzM1fDE4MjMwfDI2NzE%3D&nothumb=yes) *(260.49 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=ODI1MnxhZDM1YTdmN3wxNjAzODgwMzM1fDE4MjMwfDI2NzE%3D&nothumb=yes)
 
@@ -171,7 +172,7 @@ YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="s
 
 2009-4-28 01:23 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![PoserL82.png](static/image/common/none.gif "PoserL82.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![PoserL82.png](static/image/common/none.gif "PoserL82.png")](javascript:;)</ignore_js_op>  
 
 # 3
 

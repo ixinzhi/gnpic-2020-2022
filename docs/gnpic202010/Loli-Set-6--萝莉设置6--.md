@@ -4,27 +4,29 @@
 
 TID：2883
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 Hey everyone. I just came back for an awesome anime convention. Good time and great memories.
+
 Anyways here's another set. I'll see if I can do some more later on. Till then enjoy!
 
 ![](static/image/smiley/bigface/4.gif)
 
 嘿大家。我刚刚回来的一个可怕的动画片公约。良好的时间和美好的回忆。
+
 反正这是另一套。我去看看，如果我可以做一些更晚些时候。至此享受！
 
 Poser L 128-135
 
 [http://www.megaupload.com/?d=E7MEQJB8](http://www.megaupload.com/?d=E7MEQJB8)
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[PoserL128.png](forum.php?mod=attachment&aid=ODc2N3xiYTUxNTY4Y3wxNjAzODgyNTQ4fDE4MjMwfDI4ODM%3D&nothumb=yes) *(305.56 KB, 下載次數: 1)*
+<ignore_js_op>[PoserL128.png](forum.php?mod=attachment&aid=ODc2N3xiYTUxNTY4Y3wxNjAzODgyNTQ4fDE4MjMwfDI4ODM%3D&nothumb=yes) *(305.56 KB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=ODc2N3xiYTUxNTY4Y3wxNjAzODgyNTQ4fDE4MjMwfDI4ODM%3D&nothumb=yes)
 

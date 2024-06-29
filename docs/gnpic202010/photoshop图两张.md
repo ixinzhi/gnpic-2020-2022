@@ -4,16 +4,17 @@
 
 TID：24524
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 photoshop图两张                              
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[5e29af2a51c901b598b82516d65b08cf1fb9fb1bbc51-SfudEG_fw658.jpg](forum.php?mod=attachment&aid=NzA4NDd8YTc1MGUyYjl8MTYwMzg1MjU0NHwxODIzMHwyNDUyNA%3D%3D&nothumb=yes) *(169.29 KB, 下載次數: 17)*
+<ignore_js_op>[5e29af2a51c901b598b82516d65b08cf1fb9fb1bbc51-SfudEG_fw658.jpg](forum.php?mod=attachment&aid=NzA4NDd8YTc1MGUyYjl8MTYwMzg1MjU0NHwxODIzMHwyNDUyNA%3D%3D&nothumb=yes) *(169.29 KB, 下載次數: 17)*
 
 [下載附件](forum.php?mod=attachment&aid=NzA4NDd8YTc1MGUyYjl8MTYwMzg1MjU0NHwxODIzMHwyNDUyNA%3D%3D&nothumb=yes)
 

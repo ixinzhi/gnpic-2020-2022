@@ -4,24 +4,29 @@
 
 TID：17466
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 aabbccdd 於 2014-8-1 23:00 編輯*
 
 呃...各位好![](static/image/smiley/bigface/12.gif)
+
 首先，大家对于我上次的小故事都给予了不小的鼓励和支持，在下感激不尽![](static/image/smiley/bigface/58.gif)
+
 经过几位poser的高手的教导，并通过对render这个功能的一些小调正，做出了几张还不错的poser图![](static/image/smiley/bigface/62.gif)
+
 所以，先放出几张让大家养养眼![](static/image/smiley/bigface/17.gif)
+
 另附一张也许是下一个故事的主角angle的角色照![](static/image/smiley/bigface/52.gif)
+
 大家就随便看看吧！（虽然只有几张![](static/image/smiley/bigface/60.gif)）
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[01.png](forum.php?mod=attachment&aid=NDU0Mjd8MDRhZjZkZjh8MTYwMzg2MDY5M3wxODIzMHwxNzQ2Ng%3D%3D&nothumb=yes) *(418.08 KB, 下載次數: 13)*
+<ignore_js_op>[01.png](forum.php?mod=attachment&aid=NDU0Mjd8MDRhZjZkZjh8MTYwMzg2MDY5M3wxODIzMHwxNzQ2Ng%3D%3D&nothumb=yes) *(418.08 KB, 下載次數: 13)*
 
 [下載附件](forum.php?mod=attachment&aid=NDU0Mjd8MDRhZjZkZjh8MTYwMzg2MDY5M3wxODIzMHwxNzQ2Ng%3D%3D&nothumb=yes)
 

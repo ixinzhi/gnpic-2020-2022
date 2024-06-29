@@ -4,7 +4,7 @@
 
 TID：14429
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -31,7 +31,9 @@ TID：14429
 图片很大，可以打开欣赏。
 
 =======================================================================
+
 以下是给C84某同人志的最新插画，因为截稿日期还早，可以慢慢刻画，不出意外的话，将会是我登峰造极的一作！
+
 <ignore_js_op>![](img/edfa2402d72ba6476534a32cda741637.png)
 
 **C84.jpg** *(43.02 KB, 下載次數: 0)*
@@ -41,11 +43,13 @@ TID：14429
 2013-5-18 19:21 上傳
 
 P.S：周末放三笠图（两张）。
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
 > guy 發表於 2013-5-18 19:45 [](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=189354&ptid=14429)
+
 > 沙发。沙发。 这是游戏插图么？
 
 不是，就是GTS插画，CM同人志里的。
@@ -53,19 +57,23 @@ P.S：周末放三笠图（两张）。
 GTS什么游戏用得着这么大尺寸的图片么？
 
 P.S：以后请不要说沙发之类没营养的话，管理员很严格。
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 3
 
 > 焦承裕 發表於 2013-5-19 22:09 [](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=189469&ptid=14429)
+
 > 现在是周末吧？
 
 是啊，等你评论给分呢
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 4
 
 > nkhymmig 發表於 2013-5-24 18:49 [](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=189743&ptid=14429)
+
 > 3Q~~~~~~~~~~~~^_^
 
 敢在我的帖子里刷版啊，已举报不送。</ignore_js_op></ignore_js_op></ignore_js_op>

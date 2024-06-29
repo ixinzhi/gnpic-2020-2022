@@ -4,13 +4,14 @@
 
 TID：23155
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 大海 於 2017-5-26 12:31 編輯*
 
 潜水多年，最近看到有人用Playclub做的一系列美图之后，感觉挺好玩的。就下来试试了。
+
 不过运行之后，发现本人的电脑配置实在太差了，运行高质量的模式经常“无响应”。
 
 切换场景、增加人物、增加物品时，经常屏幕就卡住不动了，有时卡着几分钟或者直接退出程序。
@@ -101,7 +102,7 @@ TID：23155
 
 “你说呢！”
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

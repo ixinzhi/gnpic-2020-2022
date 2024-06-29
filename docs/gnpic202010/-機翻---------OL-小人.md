@@ -4,14 +4,18 @@
 
 TID：28090
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 機翻的不專業翻譯，因有些對話內容看不懂，按自己意思補上，如需更了解原意，點擊以下連結。
+
 作者：いばらーど
+
 圖片來源：[https://twitter.com/i/events/99708603934793728](https://twitter.com/i/events/99708603934793728)                [https://twitter.com/Exrumya/status/1142572724415422464](https://twitter.com/Exrumya/status/1142572724415422464)沒放入其中的單圖[https://twitter.com/Exrumya/status/1142672283963555840](https://twitter.com/Exrumya/status/1142672283963555840)
-                          [https://twitter.com/Exrumya/status/1064104109693784064](https://twitter.com/Exrumya/status/1064104109693784064)
+
+[https://twitter.com/Exrumya/status/1064104109693784064](https://twitter.com/Exrumya/status/1064104109693784064)
+
 角色： <ignore_js_op>![](img/008b9af3f9adfe3cd993072da544028c.png)
 
 **さっきのOL資料.jpg** *(238.09 KB, 下載次數: 15)*
@@ -129,4 +133,5 @@ TID：28090
 2020-2-18 11:04 上傳
 
 原本以為 奈央很護短，結果最後一張...
+
 希望是我理解錯誤，還是原本的人...</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

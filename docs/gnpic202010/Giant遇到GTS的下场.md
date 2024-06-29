@@ -4,15 +4,15 @@
 
 TID：15431
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-enjoy--------------:)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+enjoy--------------:) 
 
 # 2
 
- <ignore_js_op>[a1.jpg](forum.php?mod=attachment&aid=MzcyMzR8ZjQ3MzMyNTl8MTYwMzgzODUzMXwxODIzMHwxNTQzMQ%3D%3D&nothumb=yes) *(415.23 KB, 下載次數: 231)*
+<ignore_js_op>[a1.jpg](forum.php?mod=attachment&aid=MzcyMzR8ZjQ3MzMyNTl8MTYwMzgzODUzMXwxODIzMHwxNTQzMQ%3D%3D&nothumb=yes) *(415.23 KB, 下載次數: 231)*
 
 [下載附件](forum.php?mod=attachment&aid=MzcyMzR8ZjQ3MzMyNTl8MTYwMzgzODUzMXwxODIzMHwxNTQzMQ%3D%3D&nothumb=yes)
 
@@ -210,12 +210,13 @@ enjoy--------------:)<title>2</title> <link href="../Styles/Style.css" type="tex
 
 2013-10-22 19:58 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![a33.jpg](img/6871d901bb6fd2907880bbb2f04e1ba4.png "a33.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![a33.jpg](img/6871d901bb6fd2907880bbb2f04e1ba4.png "a33.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 做起来也不麻烦。动作部分是用pinup的姿势，部分是3dmax做的。
-我一直想搞故事类的，但实施起来很费劲，用Poser，3dmax搞么，缺乏资源。用上古5搞，感觉画面精度不够高。<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+我一直想搞故事类的，但实施起来很费劲，用Poser，3dmax搞么，缺乏资源。用上古5搞，感觉画面精度不够高。 
 
 # 4
 

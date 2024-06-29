@@ -4,11 +4,12 @@
 
 TID：2171
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 Hey!!
+
 這個畫其實是我較早以前畫的(2008年時)
 
 而現在我把它從別的論壇轉移到這裡
@@ -38,7 +39,9 @@ X的! 許多會員都對那論壇很失望~
 而我現在則一天一天的把我一些這邊沒有發的圖轉過來,其實好像也只有3張的樣子= =
 
 (因為我一天只能下載我一張圖OTZ 一天點一次我的圖就差不多滿了1300kb![](static/image/smiley/bigface/40.gif) )
+
 ================================================
+
 好!抱怨完畢!
 
 我有發原版與中譯的版本(原本是畫別的語言,假如有人看的懂的話..)
@@ -48,6 +51,7 @@ X的! 許多會員都對那論壇很失望~
 我需要做個introduction於這張圖(請有耐心看下去,謝謝!):
 
 * * *
+
 一位年輕人在旅行~
 
 他爬上了一座高山
@@ -82,11 +86,11 @@ X的! 許多會員都對那論壇很失望~
 
 (接圖片~~ 別罵我,我中文事實上只有國中的程度而已![](static/image/smiley/bigface/57.gif) )
 
-[ *本帖最後由 pliod 於 2009-2-23 06:28 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 pliod 於 2009-2-23 06:28 編輯* ] 
 
 # 2
 
- <ignore_js_op>[Riesige Gottin(原版).jpg](forum.php?mod=attachment&aid=NjU1OXxkY2I4NGUxOHwxNjAzODgzMDcxfDE4MjMwfDIxNzE%3D&nothumb=yes) *(1.16 MB, 下載次數: 16)*
+<ignore_js_op>[Riesige Gottin(原版).jpg](forum.php?mod=attachment&aid=NjU1OXxkY2I4NGUxOHwxNjAzODgzMDcxfDE4MjMwfDIxNzE%3D&nothumb=yes) *(1.16 MB, 下載次數: 16)*
 
 [下載附件](forum.php?mod=attachment&aid=NjU1OXxkY2I4NGUxOHwxNjAzODgzMDcxfDE4MjMwfDIxNzE%3D&nothumb=yes)
 
@@ -98,7 +102,7 @@ X的! 許多會員都對那論壇很失望~
 
 2009-2-23 05:47 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![giant goddess(譯中文).jpg](static/image/common/none.gif "giant goddess(譯中文).jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![giant goddess(譯中文).jpg](static/image/common/none.gif "giant goddess(譯中文).jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 

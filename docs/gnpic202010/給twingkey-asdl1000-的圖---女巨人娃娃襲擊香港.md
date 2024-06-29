@@ -4,13 +4,16 @@
 
 TID：4668
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 ![](static/image/smiley/bigface/18.gif)
+
 合成圖片講求速度,
+
 我就是第一人!
+
 麻煩請用帖子右下方的”評分”功能支持我吧
 
 <ignore_js_op>![](static/image/common/none.gif)
@@ -30,26 +33,30 @@ TID：4668
 （你們逃或不逃，最後也會死在我的靴子下．．．哈哈）
 
 後記:
+
 雖然這張圖並沒有我想像中的那樣(還是我要求太高了?![](static/image/smiley/bigface/24.gif))
+
 但...還可以啦![](static/image/smiley/bigface/10.gif)
-那張圖...我想應該是兩個娃娃發動瞬間移動的姿勢吧![](static/image/smiley/bigface/17.gif)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+那張圖...我想應該是兩個娃娃發動瞬間移動的姿勢吧![](static/image/smiley/bigface/17.gif) 
 
 # 2
 
 讓我找找.....
 
 我好像連上海城市的素材也沒有![](static/image/smiley/bigface/19.gif)
-誰能給我點呀![](static/image/smiley/bigface/24.gif)<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+誰能給我點呀![](static/image/smiley/bigface/24.gif) 
 
 # 3
 
 這不是更好嗎![](static/image/smiley/bigface/18.gif) 能夠看到女巨人在自己的面前
 
-其實我也是香港人![](static/image/smiley/bigface/17.gif)<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+其實我也是香港人![](static/image/smiley/bigface/17.gif) 
 
 # 4
 
-我倒覺得這個娃娃像真人一樣![](static/image/smiley/bigface/17.gif)<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+我倒覺得這個娃娃像真人一樣![](static/image/smiley/bigface/17.gif) 
 
 # 5
 

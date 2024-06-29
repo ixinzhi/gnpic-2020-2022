@@ -4,7 +4,7 @@
 
 TID：28505
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -13,6 +13,7 @@ TID：28505
 Shivharu漫画的下篇汉化。因为之前看到很多论坛上的朋友很想看这个漫画的下部，因此也把它给汉化了。这里非常感谢朝雾绘梨花的翻译与润色工作，如果不是她想要汉化这部漫画，我们估计最近也不会动工就是了。如果想要支持作者的话，可以去他的购买网站上购买漫画。作者的网站链接是：[https://shivharu.booth.pm/](https://shivharu.booth.pm/)
 
 mega网盘下载链接：[https://mega.nz/file/lzYn1aTJ#Iv ... K80sua8EMe8yyINMcPI](https://mega.nz/file/lzYn1aTJ#Ivw0uXe1Zib-rmG545S-1n3jK80sua8EMe8yyINMcPI)
+
 百度网盘链接: [https://pan.baidu.com/s/1C3UQDLvp6qvV0XbkQhJqIA](https://pan.baidu.com/s/1C3UQDLvp6qvV0XbkQhJqIA) 提取码: gqqk
 
 压缩包解压密码：Shivharu

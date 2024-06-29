@@ -4,7 +4,7 @@
 
 TID：9166
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -16,11 +16,11 @@ I just did this one for fun. Sorry about the poor quality, my computer was actin
 
 YA-HA!!!
 
-http://www.megaupload.com/?d=HEY9DTPP<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+http://www.megaupload.com/?d=HEY9DTPP 
 
 # 2
 
- <ignore_js_op>[1.png](forum.php?mod=attachment&aid=MTQzNzF8Mjc5YmZhZjJ8MTYwMzg4MTU5MnwxODIzMHw5MTY2&nothumb=yes) *(81.35 KB, 下載次數: 4)*
+<ignore_js_op>[1.png](forum.php?mod=attachment&aid=MTQzNzF8Mjc5YmZhZjJ8MTYwMzg4MTU5MnwxODIzMHw5MTY2&nothumb=yes) *(81.35 KB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=MTQzNzF8Mjc5YmZhZjJ8MTYwMzg4MTU5MnwxODIzMHw5MTY2&nothumb=yes)
 

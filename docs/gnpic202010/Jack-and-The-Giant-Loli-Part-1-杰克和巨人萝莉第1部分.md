@@ -4,7 +4,7 @@
 
 TID：5559
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ Not much to say really I hope you all enjoy and thanks for the continued support
 
 没有太多的说真的，我希望大家喜欢并继续支持表示感谢。万圣节快乐！
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[Jack-and-the-Giant-loli-1.png](forum.php?mod=attachment&aid=MTQ2OTN8MWJlZWRkODd8MTYwMzg4MTUzMXwxODIzMHw1NTU5&nothumb=yes) *(626.97 KB, 下載次數: 10)*
+<ignore_js_op>[Jack-and-the-Giant-loli-1.png](forum.php?mod=attachment&aid=MTQ2OTN8MWJlZWRkODd8MTYwMzg4MTUzMXwxODIzMHw1NTU5&nothumb=yes) *(626.97 KB, 下載次數: 10)*
 
 [下載附件](forum.php?mod=attachment&aid=MTQ2OTN8MWJlZWRkODd8MTYwMzg4MTUzMXwxODIzMHw1NTU5&nothumb=yes)
 
@@ -78,14 +78,18 @@ YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="s
 
 2009-11-1 07:37 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![Jack-and-the-Giant-loli-10.png](static/image/common/none.gif "Jack-and-the-Giant-loli-10.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![Jack-and-the-Giant-loli-10.png](static/image/common/none.gif "Jack-and-the-Giant-loli-10.png")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > 原帖由 *archer* 於 2009-10-31 19:14 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=72461&ptid=5559)
+
 > ![](static/image/smiley/bigface/65.gif)
+
 > 哦哦
+
 > 似乎还有后续~~
+
 > 那个是金条？....![](static/image/smiley/bigface/70.gif)
 
 Thank you guys, and yes there is going to be plenty more!

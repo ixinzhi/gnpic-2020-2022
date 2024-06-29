@@ -4,17 +4,17 @@
 
 TID：10092
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 RT 有的话我今天就做了
 
-好吧上图了     新人发图 卖点钱。。<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+好吧上图了     新人发图 卖点钱。。 
 
 # 2
 
- <ignore_js_op>[WoWScrnShot_050311_222932.jpg](forum.php?mod=attachment&aid=MjQzODZ8NDg5MzY4N2N8MTYwMzg3NzEzMHwxODIzMHwxMDA5Mg%3D%3D&nothumb=yes) *(254.93 KB, 下載次數: 3)*
+<ignore_js_op>[WoWScrnShot_050311_222932.jpg](forum.php?mod=attachment&aid=MjQzODZ8NDg5MzY4N2N8MTYwMzg3NzEzMHwxODIzMHwxMDA5Mg%3D%3D&nothumb=yes) *(254.93 KB, 下載次數: 3)*
 
 [下載附件](forum.php?mod=attachment&aid=MjQzODZ8NDg5MzY4N2N8MTYwMzg3NzEzMHwxODIzMHwxMDA5Mg%3D%3D&nothumb=yes)
 
@@ -38,7 +38,7 @@ RT 有的话我今天就做了
 
 2011-5-4 20:35 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![WoWScrnShot_050311_231817.jpg](img/3f60ea613cb9348ed8989606ce7f5b99.png "WoWScrnShot_050311_231817.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![WoWScrnShot_050311_231817.jpg](img/3f60ea613cb9348ed8989606ce7f5b99.png "WoWScrnShot_050311_231817.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 

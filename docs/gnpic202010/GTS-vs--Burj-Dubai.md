@@ -4,22 +4,25 @@
 
 TID：6204
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 大家好!
+
 昨天 "Burj-Khalifa" (Burj-Dubai) 開業了!
 
 諸位知道的那樣, 這個大樓在世界最高的大樓, 是高度828m.
+
 OK. 我理解著諸位期待的事. ![](static/image/smiley/bigface/17.gif)
 
 第1,2圖: 巨大娘 "Mina", 身高 158m (100倍)!  這麼看上去很小!!![](static/image/smiley/bigface/1.gif)
-第3圖∼: 巨大悪魔娘 "Maria", 身高 1700m (1000倍)!  Hehehe! ![](static/image/smiley/bigface/67.gif)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+第3圖∼: 巨大悪魔娘 "Maria", 身高 1700m (1000倍)!  Hehehe! ![](static/image/smiley/bigface/67.gif) 
 
 # 2
 
- <ignore_js_op>[20100106-001953.jpg](forum.php?mod=attachment&aid=MTU5OTB8OTk5MjAwYTB8MTYwMzg3NjY0MnwxODIzMHw2MjA0&nothumb=yes) *(107 KB, 下載次數: 4)*
+<ignore_js_op>[20100106-001953.jpg](forum.php?mod=attachment&aid=MTU5OTB8OTk5MjAwYTB8MTYwMzg3NjY0MnwxODIzMHw2MjA0&nothumb=yes) *(107 KB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=MTU5OTB8OTk5MjAwYTB8MTYwMzg3NjY0MnwxODIzMHw2MjA0&nothumb=yes)
 
@@ -61,9 +64,10 @@ OK. 我理解著諸位期待的事. ![](static/image/smiley/bigface/17.gif)
 
 2010-1-5 23:45 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![20100105-232243.jpg](img/4f980b9c49f54e71de7ab8d7308a72c7.png "20100105-232243.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![20100105-232243.jpg](img/4f980b9c49f54e71de7ab8d7308a72c7.png "20100105-232243.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 謝謝大家的支持！
+
 Thanks for your access and comments.![](static/image/smiley/bigface/7.gif)

@@ -4,15 +4,15 @@
 
 TID：1559
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-做的比较粗糙，请大家见谅！<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+做的比较粗糙，请大家见谅！ 
 
 # 2
 
- <ignore_js_op>[gtsgirl.jpg](forum.php?mod=attachment&aid=NTM5NXxiMTZjNzkzOHwxNjAzODgxMDU2fDE4MjMwfDE1NTk%3D&nothumb=yes) *(547.86 KB, 下載次數: 16)*
+<ignore_js_op>[gtsgirl.jpg](forum.php?mod=attachment&aid=NTM5NXxiMTZjNzkzOHwxNjAzODgxMDU2fDE4MjMwfDE1NTk%3D&nothumb=yes) *(547.86 KB, 下載次數: 16)*
 
 [下載附件](forum.php?mod=attachment&aid=NTM5NXxiMTZjNzkzOHwxNjAzODgxMDU2fDE4MjMwfDE1NTk%3D&nothumb=yes)
 
@@ -24,7 +24,7 @@ TID：1559
 
 2008-7-10 20:26 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-![gtsgirl.gif](static/image/common/none.gif "gtsgirl.gif")</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+![gtsgirl.gif](static/image/common/none.gif "gtsgirl.gif")</ignore_js_op>  
 
 # 3
 

@@ -4,21 +4,28 @@
 
 TID：28943
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 迷途小喵 於 2020-6-25 00:54 編輯*
 
 看到了一篇很罕見的mini系growth文章
+
 [[巨大女性] 我和我的青梅竹马（minigts，grow）](https://giantessnight.com/gnforum2012/forum.php?mod=viewthread&tid=28923&extra=page%3D1)
+
 馬上就愛上了，這種逐漸長高發育的越來越大甚麼的
+
 直戳我的點
+
 而且內文也寫得非常的生動
+
 讓我畫面非常的鮮明
 
 於是腦洞起來想為這個文章畫點圖
+
 (如果客官覺得畫得不像就當原創吧)
+
 <ignore_js_op>![](img/4643fe6b6a152cea8cb5de88ee4016ab.png)
 
 **001.jpg** *(681.9 KB, 下載次數: 1)*
@@ -44,6 +51,7 @@ TID：28943
 2020-6-24 11:42 上傳
 
 試著做了灰階
+
 <ignore_js_op>![](img/65be751e302b8cdf687a5565d51a1ecc.png)
 
 **004.jpg** *(881.26 KB, 下載次數: 1)*
@@ -53,8 +61,11 @@ TID：28943
 2020-6-24 11:42 上傳
 
 根據原作者的話:希望可以跟口口工一樣等級的爆乳肥臀
+
 於是加大了女主的身材(反正就當發育)
+
 加上了身高數字好對應生長時期
+
 <ignore_js_op>![](img/58b9b35a3e62d0e643078a48f8e2d8db.png)
 
 **005.jpg** *(687.85 KB, 下載次數: 1)*
@@ -72,4 +83,5 @@ TID：28943
 2020-6-25 00:53 上傳
 
 我之後會一天一頁把女主的所有身高的場景都畫完的
+
 也是為了自己的手殘練習，順便也準備開拓patreon這塊領域(不知道我夠不夠格阿)</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

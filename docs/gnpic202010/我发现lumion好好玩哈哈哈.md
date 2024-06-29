@@ -4,16 +4,17 @@
 
 TID：23783
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 其实以前也有发现，今天就用lumion玩玩吧哈哈哈，以后再出些高质量的哈哈哈
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[QQ截图20170831171614.png](forum.php?mod=attachment&aid=NjkzNTd8NTkwMjdhMTJ8MTYwMzg1NDQyNHwxODIzMHwyMzc4Mw%3D%3D&nothumb=yes) *(2.17 MB, 下載次數: 9)*
+<ignore_js_op>[QQ截图20170831171614.png](forum.php?mod=attachment&aid=NjkzNTd8NTkwMjdhMTJ8MTYwMzg1NDQyNHwxODIzMHwyMzc4Mw%3D%3D&nothumb=yes) *(2.17 MB, 下載次數: 9)*
 
 [下載附件](forum.php?mod=attachment&aid=NjkzNTd8NTkwMjdhMTJ8MTYwMzg1NDQyNHwxODIzMHwyMzc4Mw%3D%3D&nothumb=yes)
 
@@ -31,11 +32,12 @@ TID：23783
 
 2017-8-31 17:23 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![1.jpg](img/bb16fb4fbe71385f35c0545e8f7ac7a8.png "1.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![1.jpg](img/bb16fb4fbe71385f35c0545e8f7ac7a8.png "1.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > [大撸若愚 發表於 2017-8-31 19:49](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=346699&ptid=23783)
+
 > 自娱自乐哈哈哈哈，腿有点点粗
 
 毕竟lumion改不了人模型哈哈哈哈，只能改大小哈哈

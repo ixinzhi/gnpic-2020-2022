@@ -4,15 +4,15 @@
 
 TID：6924
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-总算做到一百，可以结束“人类有难了”这一系列了![](static/image/smiley/bigface/6.gif)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+总算做到一百，可以结束“人类有难了”这一系列了![](static/image/smiley/bigface/6.gif) 
 
 # 2
 
- <ignore_js_op>[人&#31867;有&#38590;了88.jpg](forum.php?mod=attachment&aid=MTc4NTh8MzcxNjY0Mjd8MTYwMzg3ODU4OHwxODIzMHw2OTI0&nothumb=yes) *(169.96 KB, 下載次數: 26)*
+<ignore_js_op>[人&#31867;有&#38590;了88.jpg](forum.php?mod=attachment&aid=MTc4NTh8MzcxNjY0Mjd8MTYwMzg3ODU4OHwxODIzMHw2OTI0&nothumb=yes) *(169.96 KB, 下載次數: 26)*
 
 [下載附件](forum.php?mod=attachment&aid=MTc4NTh8MzcxNjY0Mjd8MTYwMzg3ODU4OHwxODIzMHw2OTI0&nothumb=yes)
 

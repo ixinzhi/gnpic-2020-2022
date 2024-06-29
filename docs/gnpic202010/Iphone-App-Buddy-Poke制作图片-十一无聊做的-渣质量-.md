@@ -4,19 +4,21 @@
 
 TID：13451
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 如题，图片的质量不高（毕竟是用手机做的），放出来给大家看一下，希望拥有ipad的同好能做出更精致的作品（屏幕大啊）。
+
 上图：
+
 还有一份组图： <ignore_js_op>![](static/image/filetype/rar.gif) [1.rar](forum.php?mod=attachment&aid=MzEzNjV8YzM5MWFkMDR8MTYwMzg3NDYyMnwxODIzMHwxMzQ1MQ%3D%3D) *(4.37 MB, 下載次數: 6)* 2012-10-11 21:13 上傳點擊文件名下載附件
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[IMG_0184.png](forum.php?mod=attachment&aid=MzEzNTR8OTI4Y2ViYjF8MTYwMzg3NDYyMnwxODIzMHwxMzQ1MQ%3D%3D&nothumb=yes) *(205.97 KB, 下載次數: 29)*
+<ignore_js_op>[IMG_0184.png](forum.php?mod=attachment&aid=MzEzNTR8OTI4Y2ViYjF8MTYwMzg3NDYyMnwxODIzMHwxMzQ1MQ%3D%3D&nothumb=yes) *(205.97 KB, 下載次數: 29)*
 
 [下載附件](forum.php?mod=attachment&aid=MzEzNTR8OTI4Y2ViYjF8MTYwMzg3NDYyMnwxODIzMHwxMzQ1MQ%3D%3D&nothumb=yes)
 
@@ -104,13 +106,14 @@ TID：13451
 
 11
 
-[![11](img/55e325084e616dc259e10ca634dfeaca.png "11")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![11](img/55e325084e616dc259e10ca634dfeaca.png "11")](javascript:;)</ignore_js_op>  
 
 # 3
 
 *本文章最後由 cat 於 2012-10-14 18:27 編輯*
 
 第二弹！
+
 <ignore_js_op>![](img/1c4ca530c6808fc2041653af41bfa075.png)
 
 **IMG_0308.jpg** *(103 KB, 下載次數: 0)*
@@ -201,11 +204,11 @@ TID：13451
 
 2012-10-14 15:47 上傳
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
- <ignore_js_op>[IMG_0304.jpg](forum.php?mod=attachment&aid=MzEzOTN8M2NlMTk2NDl8MTYwMzg3NDYyMnwxODIzMHwxMzQ1MQ%3D%3D&nothumb=yes) *(84.06 KB, 下載次數: 0)*
+<ignore_js_op>[IMG_0304.jpg](forum.php?mod=attachment&aid=MzEzOTN8M2NlMTk2NDl8MTYwMzg3NDYyMnwxODIzMHwxMzQ1MQ%3D%3D&nothumb=yes) *(84.06 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=MzEzOTN8M2NlMTk2NDl8MTYwMzg3NDYyMnwxODIzMHwxMzQ1MQ%3D%3D&nothumb=yes)
 

@@ -4,7 +4,7 @@
 
 TID：18543
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -16,11 +16,11 @@ TID：18543
 
 這次除了發模組之外，Proerdd老師還做了一個縮小男的系列，不過....算了
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[8dec366d432e4e9c1eb4e9c8981f1ee4044f0c36.jpg](forum.php?mod=attachment&aid=NTA0MTV8NmFlYTIzYWR8MTYwMzg2Mzg3NnwxODIzMHwxODU0Mw%3D%3D&nothumb=yes) *(3.61 MB, 下載次數: 120)*
+<ignore_js_op>[8dec366d432e4e9c1eb4e9c8981f1ee4044f0c36.jpg](forum.php?mod=attachment&aid=NTA0MTV8NmFlYTIzYWR8MTYwMzg2Mzg3NnwxODIzMHwxODU0Mw%3D%3D&nothumb=yes) *(3.61 MB, 下載次數: 120)*
 
 [下載附件](forum.php?mod=attachment&aid=NTA0MTV8NmFlYTIzYWR8MTYwMzg2Mzg3NnwxODIzMHwxODU0Mw%3D%3D&nothumb=yes)
 

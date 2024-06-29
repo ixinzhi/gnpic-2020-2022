@@ -4,21 +4,26 @@
 
 TID：3116
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 这是原计划地址，这只是我的残念，仅此而已。
+
 全部插画完全符合RPG VX的游戏界面格式。
+
 [http://giantessnight.com/gnforum ... =2664&amp;extra=&amp;page=1](http://giantessnight.com/gnforum/viewthread.php?tid=2664&amp;extra=&amp;page=1)
 
 顺便为我以前的作品做个广告，希望大家多多支持，谢谢！
+
 [http://giantessnight.com/gnforum ... 2666&amp;extra=page%3D3](http://giantessnight.com/gnforum/viewthread.php?tid=2666&amp;extra=page%3D3)
 
 这是我在日本GTS网站发的帖子，我也借这个机会向日本人提出了要增进互相交流，减少对日本岛外的IP限制。
+
 [http://gs-uploader.jpn.org/upld- ... 240768189&amp;range=l20](http://gs-uploader.jpn.org/upld-bbs-article.php?tid=1240768189&amp;range=l20)
 
 这是在美国的giantesscity发的帖子，忽悠一下他们。
+
 [http://giantesscity.com/forum/viewtopic.php?f=25&amp;t=62800](http://giantesscity.com/forum/viewtopic.php?f=25&amp;t=62800)
 
 <ignore_js_op>![](static/image/common/none.gif)
@@ -114,10 +119,15 @@ TID：3116
 2009-6-23 02:27 上傳
 
 **以下隐藏部分没有新图，只是没有文字的原图。送给那些支持我的同好。
+
 请不要再说“回复看看什么东西”！！！谢谢！！！**
+
 有些同好说我画的很烂，我感到很沮丧，我只是个业余画家，没法跟专业画家比。
+
 我也曾想过今后不再创作，在这里投入太多不一定是一件好事。
+
 自己辛苦的付出却得到别人冷淡的回应，甚至想跟一些同好交流却没有回音，热脸贴在冷屁股上，这让人很难受。
+
 希望大家认真的回复，每一个回复我都会去看的，谢谢大家！
 
 <ignore_js_op>![](static/image/common/none.gif)

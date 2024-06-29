@@ -4,14 +4,16 @@
 
 TID：28845
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 kevinsky05 於 2020-6-8 00:15 編輯*
 
 链接：[https://pan.baidu.com/s/1rBKmU-kUoIBN5OExsaZ8ig](https://pan.baidu.com/s/1rBKmU-kUoIBN5OExsaZ8ig)
+
 提取码：3cqb
+
 [https://drive.google.com/file/d/1FdHYsbMZSm3mPOBR5a9KjD5oFdLMTp4O/view?usp=sharing](https://drive.google.com/file/d/1FdHYsbMZSm3mPOBR5a9KjD5oFdLMTp4O/view?usp=sharing)
 
 <ignore_js_op>![](img/0f58467fc6ba009795e6746a8d0a9939.png)

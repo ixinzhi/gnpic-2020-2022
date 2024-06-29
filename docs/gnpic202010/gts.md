@@ -4,7 +4,7 @@
 
 TID：411
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -16,7 +16,7 @@ TID：411
 
 2007-8-1 01:54 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -60,7 +60,7 @@ TID：411
 
 2007-8-8 03:30 上傳
 
-![](static/image/smiley/default/lol.gif) ![](static/image/smiley/default/lol.gif)<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+![](static/image/smiley/default/lol.gif) ![](static/image/smiley/default/lol.gif) 
 
 # 3
 
@@ -74,11 +74,11 @@ tisato
 
 2007-8-16 02:21 上傳
 
-![](static/image/smiley/default/lol.gif) ![](static/image/smiley/default/lol.gif)<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+![](static/image/smiley/default/lol.gif) ![](static/image/smiley/default/lol.gif) 
 
 # 4
 
- <ignore_js_op>[1127011638398.jpg](forum.php?mod=attachment&aid=MTcxM3xhM2EyMTMyZnwxNjAzODgyNTcwfDE4MjMwfDQxMQ%3D%3D&nothumb=yes) *(161.24 KB, 下載次數: 5)*
+<ignore_js_op>[1127011638398.jpg](forum.php?mod=attachment&aid=MTcxM3xhM2EyMTMyZnwxNjAzODgyNTcwfDE4MjMwfDQxMQ%3D%3D&nothumb=yes) *(161.24 KB, 下載次數: 5)*
 
 [下載附件](forum.php?mod=attachment&aid=MTcxM3xhM2EyMTMyZnwxNjAzODgyNTcwfDE4MjMwfDQxMQ%3D%3D&nothumb=yes)
 

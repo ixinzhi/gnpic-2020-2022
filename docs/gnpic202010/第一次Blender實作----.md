@@ -4,7 +4,7 @@
 
 TID：27997
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -17,6 +17,7 @@ TID：27997
 2020-2-8 12:11 上傳
 
 總結就是：Blender 比 MMD 細緻很多
+
 （雖然一開始是因為我是Mac系統，所以沒有辦法用MMD，最後轉陣Blender）
 
 皮膚、衣料的部分還得在多加學習</ignore_js_op>

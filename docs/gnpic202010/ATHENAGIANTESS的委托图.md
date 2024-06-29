@@ -4,15 +4,15 @@
 
 TID：12054
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-（ `v`）<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+（ `v`） 
 
 # 2
 
- <ignore_js_op>[AthenaGiantess.jpg](forum.php?mod=attachment&aid=MjgwNjZ8NWY5ZTIwN2J8MTYwMzg3NTUwMXwxODIzMHwxMjA1NA%3D%3D&nothumb=yes) *(959.2 KB, 下載次數: 46)*
+<ignore_js_op>[AthenaGiantess.jpg](forum.php?mod=attachment&aid=MjgwNjZ8NWY5ZTIwN2J8MTYwMzg3NTUwMXwxODIzMHwxMjA1NA%3D%3D&nothumb=yes) *(959.2 KB, 下載次數: 46)*
 
 [下載附件](forum.php?mod=attachment&aid=MjgwNjZ8NWY5ZTIwN2J8MTYwMzg3NTUwMXwxODIzMHwxMjA1NA%3D%3D&nothumb=yes)
 

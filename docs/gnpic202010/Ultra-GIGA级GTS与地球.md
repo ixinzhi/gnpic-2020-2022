@@ -4,17 +4,17 @@
 
 TID：1578
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 我的创作效率真是太快了，而且图都很大很清晰。。。这些都是在学校做的，刚考试完，放假回家恐怕就不会有作品了。。。明年就要毕业工作了。。。
 
-[ *本帖最後由 xnr 於 2008-7-15 23:18 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2008-7-15 23:18 編輯* ] 
 
 # 2
 
- <ignore_js_op>[e-1.jpg](forum.php?mod=attachment&aid=NTQxOXw4NzQ3NjZlOXwxNjAzODgzMzg4fDE4MjMwfDE1Nzg%3D&nothumb=yes) *(190.17 KB, 下載次數: 9)*
+<ignore_js_op>[e-1.jpg](forum.php?mod=attachment&aid=NTQxOXw4NzQ3NjZlOXwxNjAzODgzMzg4fDE4MjMwfDE1Nzg%3D&nothumb=yes) *(190.17 KB, 下載次數: 9)*
 
 [下載附件](forum.php?mod=attachment&aid=NTQxOXw4NzQ3NjZlOXwxNjAzODgzMzg4fDE4MjMwfDE1Nzg%3D&nothumb=yes)
 

@@ -4,7 +4,7 @@
 
 TID：15646
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -204,7 +204,7 @@ TID：15646
 
 2013-11-25 21:35 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -394,7 +394,7 @@ TID：15646
 
 2013-11-25 21:42 上傳
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
@@ -584,17 +584,17 @@ TID：15646
 
 2013-11-25 16:38 上傳
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
- <ignore_js_op>[file.php(50).jpg](forum.php?mod=attachment&aid=MzgxODh8MjMyOThhZjl8MTYwMzg2OTI4MnwxODIzMHwxNTY0Ng%3D%3D&nothumb=yes) *(162.51 KB, 下載次數: 17)*
+<ignore_js_op>[file.php(50).jpg](forum.php?mod=attachment&aid=MzgxODh8MjMyOThhZjl8MTYwMzg2OTI4MnwxODIzMHwxNTY0Ng%3D%3D&nothumb=yes) *(162.51 KB, 下載次數: 17)*
 
 [下載附件](forum.php?mod=attachment&aid=MzgxODh8MjMyOThhZjl8MTYwMzg2OTI4MnwxODIzMHwxNTY0Ng%3D%3D&nothumb=yes)
 
 2013-11-25 16:35 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![file.php(50).jpg](img/c471e1f17f1674d281c087b3248a432d.png "file.php(50).jpg")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![file.php(50).jpg](img/c471e1f17f1674d281c087b3248a432d.png "file.php(50).jpg")](javascript:;)</ignore_js_op>  
 
 # 5
 
@@ -782,7 +782,7 @@ TID：15646
 
 2013-11-25 16:45 上傳
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
@@ -978,7 +978,7 @@ TID：15646
 
 2013-11-25 16:59 上傳
 
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 7
 
@@ -1160,7 +1160,7 @@ TID：15646
 
 2013-11-25 17:08 上傳
 
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 8
 
@@ -1340,7 +1340,7 @@ TID：15646
 
 2013-11-25 18:04 上傳
 
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 9
 
@@ -1472,15 +1472,16 @@ TID：15646
 
 2013-11-25 18:10 上傳
 
-<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 10
 
-图片22 忘记翻了  已经补上，  45和46是重复的，  49和50是重复的 把英文的已经删掉了。<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+图片22 忘记翻了  已经补上，  45和46是重复的，  49和50是重复的 把英文的已经删掉了。 
 
 # 11
 
 > zhangy123 發表於 2013-11-27 22:32 [](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=209873&ptid=15646)
+
 > 谢谢，很喜欢，请继续翻译吧~拜托
 
 原帖到这里，目前还没更新。有更新的话 尽力。</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

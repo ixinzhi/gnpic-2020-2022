@@ -4,7 +4,7 @@
 
 TID：16060
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -57,6 +57,7 @@ TID：16060
 …………………………
 
 （光芒亮瞎眼）天旋地转……我没死？！！对了，我这是在哪儿？
+
 <ignore_js_op>![](img/395bbabf7ef67ffaf0c943e7e12f2585.png)
 
 **br-sitting 002.png** *(996.71 KB, 下載次數: 4)*
@@ -129,11 +130,11 @@ ps：二月份之前我一定会放出一篇文章的！
 
 放一半行不行，来个上下篇或者故事篇分析篇解答篇什么的……
 
-ps2：有几张素材没用上，就放在下面吧。（其实是我不知道怎么删掉0.0）<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ps2：有几张素材没用上，就放在下面吧。（其实是我不知道怎么删掉0.0） 
 
 # 2
 
- <ignore_js_op>[br-sitting 001.png](forum.php?mod=attachment&aid=Mzk2MzV8MTBhYTg0NmF8MTYwMzg3MTg0M3wxODIzMHwxNjA2MA%3D%3D&nothumb=yes) *(985.17 KB, 下載次數: 35)*
+<ignore_js_op>[br-sitting 001.png](forum.php?mod=attachment&aid=Mzk2MzV8MTBhYTg0NmF8MTYwMzg3MTg0M3wxODIzMHwxNjA2MA%3D%3D&nothumb=yes) *(985.17 KB, 下載次數: 35)*
 
 [下載附件](forum.php?mod=attachment&aid=Mzk2MzV8MTBhYTg0NmF8MTYwMzg3MTg0M3wxODIzMHwxNjA2MA%3D%3D&nothumb=yes)
 

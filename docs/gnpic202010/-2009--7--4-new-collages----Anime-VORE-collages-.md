@@ -4,17 +4,17 @@
 
 TID：2596
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 more new collages...enjoy!
 
-[ *本帖最後由 rai_virt5021 於 2009-7-3 23:40 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 rai_virt5021 於 2009-7-3 23:40 編輯* ] 
 
 # 2
 
- <ignore_js_op>[12534543.jpg](forum.php?mod=attachment&aid=Nzg3Mnw5ODJkNDQxYnwxNjAzODc1MzQ4fDE4MjMwfDI1OTY%3D&nothumb=yes) *(181.99 KB, 下載次數: 39)*
+<ignore_js_op>[12534543.jpg](forum.php?mod=attachment&aid=Nzg3Mnw5ODJkNDQxYnwxNjAzODc1MzQ4fDE4MjMwfDI1OTY%3D&nothumb=yes) *(181.99 KB, 下載次數: 39)*
 
 [下載附件](forum.php?mod=attachment&aid=Nzg3Mnw5ODJkNDQxYnwxNjAzODc1MzQ4fDE4MjMwfDI1OTY%3D&nothumb=yes)
 
@@ -184,25 +184,25 @@ more new collages...enjoy!
 
 7/4 new
 
-[![7/4 new](static/image/common/none.gif "7/4 new")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![7/4 new](static/image/common/none.gif "7/4 new")](javascript:;)</ignore_js_op>  
 
 # 3
 
-service pic (or sample)<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+service pic (or sample) 
 
 # 4
 
-I couldn't upload![](static/image/smiley/bigface/40.gif)<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+I couldn't upload![](static/image/smiley/bigface/40.gif) 
 
 # 5
 
- <ignore_js_op>[rew643.jpg](forum.php?mod=attachment&aid=Nzg3OXxjZDJkZWZjY3wxNjAzODc1MzQ4fDE4MjMwfDI1OTY%3D&nothumb=yes) *(572.74 KB, 下載次數: 17)*
+<ignore_js_op>[rew643.jpg](forum.php?mod=attachment&aid=Nzg3OXxjZDJkZWZjY3wxNjAzODc1MzQ4fDE4MjMwfDI1OTY%3D&nothumb=yes) *(572.74 KB, 下載次數: 17)*
 
 [下載附件](forum.php?mod=attachment&aid=Nzg3OXxjZDJkZWZjY3wxNjAzODc1MzQ4fDE4MjMwfDI1OTY%3D&nothumb=yes)
 
 2009-4-16 20:42 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![rew643.jpg](static/image/common/none.gif "rew643.jpg")](javascript:;)</ignore_js_op> <title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![rew643.jpg](static/image/common/none.gif "rew643.jpg")](javascript:;)</ignore_js_op>  
 
 # 6
 

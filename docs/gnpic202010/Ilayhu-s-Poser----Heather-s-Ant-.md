@@ -4,7 +4,7 @@
 
 TID：5828
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -24,11 +24,11 @@ Ilayhu
 
 “希瑟的螞蟻” - 這個故事是關於希瑟的男朋友是誰一點點縮小，直到我現在螞蟻大小，故事從這裡開始的，當時他是那麼小，他的女友希瑟累了照顧別人這麼小，有決定保留他像一個微型寵物，如果我完成一些小遊戲，為她。
 
-P.S.人誰可以翻譯，以中文將是美好的，謝謝<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+P.S.人誰可以翻譯，以中文將是美好的，謝謝 
 
 # 2
 
- <ignore_js_op>[micbf005 copy.jpg](forum.php?mod=attachment&aid=MTUyNzZ8NmFlNTkwY2R8MTYwMzgyNjE1M3wxODIzMHw1ODI4&nothumb=yes) *(159.49 KB, 下載次數: 7)*
+<ignore_js_op>[micbf005 copy.jpg](forum.php?mod=attachment&aid=MTUyNzZ8NmFlNTkwY2R8MTYwMzgyNjE1M3wxODIzMHw1ODI4&nothumb=yes) *(159.49 KB, 下載次數: 7)*
 
 [下載附件](forum.php?mod=attachment&aid=MTUyNzZ8NmFlNTkwY2R8MTYwMzgyNjE1M3wxODIzMHw1ODI4&nothumb=yes)
 
@@ -88,7 +88,7 @@ P.S.人誰可以翻譯，以中文將是美好的，謝謝<title>2</title> <link
 
 2009-11-26 23:04 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![micbf090 copy.jpg](static/image/common/none.gif "micbf090 copy.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![micbf090 copy.jpg](static/image/common/none.gif "micbf090 copy.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 

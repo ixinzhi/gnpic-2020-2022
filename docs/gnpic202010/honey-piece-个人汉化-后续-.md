@@ -4,13 +4,14 @@
 
 TID：23635
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 tjx5546 於 2017-8-8 12:18 編輯*
 
 此乃强无敌系列！
+
 <ignore_js_op>![](img/bc83542a251703363a59d8dcfc1e11f8.png)
 
 **r18 honey lounge-11.jpg** *(596.72 KB, 下載次數: 18)*
@@ -91,23 +92,27 @@ TID：23635
 
 2017-8-8 12:17 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > [大撸若愚 發表於 2017-8-7 19:05](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=343285&ptid=23635)
+
 > 话说，这篇我看我们汉化组好像汉化过了哟。。。。
 
 尴尬。。。。。。![](static/image/smiley/bigface/19.gif)
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 3
 
 > [大撸若愚 發表於 2017-8-7 19:05](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=343285&ptid=23635)
+
 > 话说，这篇我看我们汉化组好像汉化过了哟。。。。
 
 那个，请问怎么删帖。。。。
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 4
 

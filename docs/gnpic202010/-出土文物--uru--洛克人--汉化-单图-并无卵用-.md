@@ -4,7 +4,7 @@
 
 TID：21611
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -21,6 +21,7 @@ TID：21611
 以前在uru的图包里看到这张图，莫名感觉神经对路，在汉化彩色版《melt》的时候顺手就把这个也翻出来了。
 
 但是melt始终没有完成，这个也就始终死在了硬盘里
+
 <ignore_js_op>![](img/0f5bc07c27026a10ae135c01ada93567.png)
 
 **QQ图片20160713220727.jpg** *(8.48 KB, 下載次數: 1)*

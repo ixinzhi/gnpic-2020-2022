@@ -4,7 +4,7 @@
 
 TID：23153
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -94,35 +94,42 @@ TID：23153
 
 2017-5-26 02:19 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > [whrlovexm 發表於 2017-5-26 15:08](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=333659&ptid=23153)
+
 > 欢迎楼主出山，感觉这个不如以前playclub做的图片好
 
-是说内容还是图的画质不好？![](static/image/smiley/big/question.gif)<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+是说内容还是图的画质不好？![](static/image/smiley/big/question.gif) 
 
 # 3
 
 > [A27452682 發表於 2017-5-26 18:43](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=333666&ptid=23153)
+
 > 報告樓主大人,這些圖片好像有些模糊....或許是我的網路問題
+
 > 但我好像看不太清楚圖片阿 點開來也是
+
 > 難道是我 ...
 
-话说都是1920*1080的尺寸，因为论坛附件大小限制，确实图片格式从png改为了jpg，画质必然下降，但应该不至于不清楚的说，要不然还是用png？5M的上传限制......每天更新两张图？![](static/image/smiley/big/cattle.gif)<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+话说都是1920*1080的尺寸，因为论坛附件大小限制，确实图片格式从png改为了jpg，画质必然下降，但应该不至于不清楚的说，要不然还是用png？5M的上传限制......每天更新两张图？![](static/image/smiley/big/cattle.gif) 
 
 # 4
 
 > [michael10611 發表於 2018-3-13 17:29](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=363755&ptid=23153)
+
 > 話說能分享原圖網址或是網盤嗎?因為我想要收藏~~
 
 这贴就是原创原图的网址，点开大图收藏即可，网盘没放，图不多，而且链接总是莫名失效。
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 5
 
 > [stone2000 發表於 2018-3-20 17:33](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=364446&ptid=23153)
+
 > 楼主大大，虽然说，你的作品一直很走心，而且每次都很精美，但是个人来讲的话更喜欢pc的作品，哈哈哈，不过 ...
 
 嗯，理解，我现在偶尔打开pc看看也是感觉画质上和hs有很大不同，并没有哪个更好，只有更喜欢哪个，只是hs内容和操作更丰富一些，人都是这样，用了高配就很难再回去标配了，哈。</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

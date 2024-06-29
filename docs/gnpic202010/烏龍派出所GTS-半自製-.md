@@ -4,7 +4,7 @@
 
 TID：51
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -12,11 +12,11 @@ TID：51
 
 請不要把圖轉到別的地方。雖然合成是我自己做的，但素材畢竟來自別人…![](static/image/smiley/default/sweat.gif)
 
-[ *本帖最後由 影武者 於 2007-3-28 20:37 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 影武者 於 2007-3-28 20:37 編輯* ] 
 
 # 2
 
- <ignore_js_op>[bwc120.jpg](forum.php?mod=attachment&aid=MTAyfGZlMzYzMDIxfDE2MDM4Nzk1NDh8MTgyMzB8NTE%3D&nothumb=yes) *(171.58 KB, 下載次數: 681)*
+<ignore_js_op>[bwc120.jpg](forum.php?mod=attachment&aid=MTAyfGZlMzYzMDIxfDE2MDM4Nzk1NDh8MTgyMzB8NTE%3D&nothumb=yes) *(171.58 KB, 下載次數: 681)*
 
 [下載附件](forum.php?mod=attachment&aid=MTAyfGZlMzYzMDIxfDE2MDM4Nzk1NDh8MTgyMzB8NTE%3D&nothumb=yes)
 

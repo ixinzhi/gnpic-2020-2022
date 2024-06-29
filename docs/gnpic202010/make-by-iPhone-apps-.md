@@ -4,11 +4,12 @@
 
 TID：13355
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 質數好差，玩玩就事啦～
+
 <ignore_js_op>![](img/e62a6cf5d41e9291d11165fbda639cb2.png)
 
 **照片.JPG** *(453.88 KB, 下載次數: 3)*
@@ -17,12 +18,13 @@ TID：13355
 
 2012-9-20 21:25 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 只係玩玩那個apps
-有圖合心意先再考慮玩玩～<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+有圖合心意先再考慮玩玩～ 
 
 # 3
 

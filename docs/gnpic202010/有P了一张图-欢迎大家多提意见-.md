@@ -4,7 +4,7 @@
 
 TID：11816
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -16,7 +16,7 @@ TID：11816
 
 2012-2-7 20:34 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

@@ -4,13 +4,14 @@
 
 TID：14827
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本文章最後由 hyow 於 2013-7-27 13:34 編輯*
 
 之前一直要驗證郵箱，弄得亞曆山大.......昨天終於驗證完畢，然後我就來偷懶了=w=本身想用一個MIKU漢服模型的來製作的，不過一打開物理引擎....直接卡的沒法製作了....
+
 <ignore_js_op>![](img/8e6ba27ae92f1d860944d1274332de25.png)
 
 **%VF%2Q]36WJ8KAGZM56~8{R.jpg** *(31.59 KB, 下載次數: 0)*
@@ -36,8 +37,11 @@ TID：14827
 2013-7-27 13:24 上傳
 
 以上
+
 下面是圖片：
+
 模型：銀匙町  歩愛ユユ 10式戦車 野戦服ハク
+
 <ignore_js_op>![](img/31aee3bf88e843e64fcecb5a7dce2a69.png)
 
 **L7Q{5LA)623{KE[(X9TA8O6.jpg** *(87.47 KB, 下載次數: 0)*

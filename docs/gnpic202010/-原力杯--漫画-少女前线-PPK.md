@@ -4,18 +4,21 @@
 
 TID：24578
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 首先感谢一下雪风dalao的帮助，我个人对于台词实在是......
+
 顺便说下，其实我一开始想画的是蛋大DGU中的一个绿毛女仆，但是在雪风dalao的代理人和锤石dalao的WA酱与春田的故事的影响下，入了少前坑，也就想画一下少前的角色了，然后想画我特别喜欢的代理人那篇文章，但是总感觉太长了....... 就放弃了，这时看到了PPK的小短篇，感觉也挺带感的，就画了下来，但是内容却完全不一样了......甚至后面的胸部PLAY都没有了......（不是巨乳的胸部PLAY 没有也罢！） 所以就变成现在这个样子了......
+
 顺便帮雪风dalao安利一下他的少前楼 [https://giantessnight.com/gnforu ... &extra=page%3D2](https://giantessnight.com/gnforum2012/forum.php?mod=viewthread&tid=22938&extra=page%3D2)
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[01.jpg](forum.php?mod=attachment&aid=NzEwMDJ8NWM5ZTM0Njd8MTYwMzgzODA1MXwxODIzMHwyNDU3OA%3D%3D&nothumb=yes) *(294.44 KB, 下載次數: 337)*
+<ignore_js_op>[01.jpg](forum.php?mod=attachment&aid=NzEwMDJ8NWM5ZTM0Njd8MTYwMzgzODA1MXwxODIzMHwyNDU3OA%3D%3D&nothumb=yes) *(294.44 KB, 下載次數: 337)*
 
 [下載附件](forum.php?mod=attachment&aid=NzEwMDJ8NWM5ZTM0Njd8MTYwMzgzODA1MXwxODIzMHwyNDU3OA%3D%3D&nothumb=yes)
 
@@ -93,11 +96,12 @@ TID：24578
 
 2018-2-23 02:03 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![13.jpg](img/77cb8e433aedfa54ee3cc4622f1c5841.png "13.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![13.jpg](img/77cb8e433aedfa54ee3cc4622f1c5841.png "13.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > [eventually 發表於 2018-3-17 11:15](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=364124&ptid=24578)
+
 > 等等……画蒂莉安啊！！
 
 前排膜拜E爷，我还以为没人会吐槽那个绿毛女仆的，寂静公国那篇故事我个人是非常的喜欢，里面的这几个角色也一样，蒂莉安，血族亲王，雾岛华穗（远坂凛），但是也因为一些原因就放弃了，希望以后有机会可以画画这个故事吧......

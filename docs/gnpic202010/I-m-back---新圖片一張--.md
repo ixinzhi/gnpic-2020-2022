@@ -4,24 +4,27 @@
 
 TID：1614
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 最近有些事…
+
 不過現在回來了~
+
 一張新圖…因為好久沒用PS了可能有些手生…
+
 圖片類似上次的那一張,但是這次我嘗試製作了被踏毀的建築--少女正在放下的腳掌下方有一些高層建築已經被踏塌.
 
 不多說了…
 
 請回復、評價，謝謝…… 
 
-[ *本帖最後由 mikeyboy_gts 於 2008-8-4 20:50 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 mikeyboy_gts 於 2008-8-4 20:50 編輯* ] 
 
 # 2
 
- <ignore_js_op>[素足&#36808;步 拷&#36125;.jpg](forum.php?mod=attachment&aid=NTQ5NHw3YWMyMzZhZHwxNjAzODgzMzQ4fDE4MjMwfDE2MTQ%3D&nothumb=yes) *(300.81 KB, 下載次數: 20)*
+<ignore_js_op>[素足&#36808;步 拷&#36125;.jpg](forum.php?mod=attachment&aid=NTQ5NHw3YWMyMzZhZHwxNjAzODgzMzQ4fDE4MjMwfDE2MTQ%3D&nothumb=yes) *(300.81 KB, 下載次數: 20)*
 
 [下載附件](forum.php?mod=attachment&aid=NTQ5NHw3YWMyMzZhZHwxNjAzODgzMzQ4fDE4MjMwfDE2MTQ%3D&nothumb=yes)
 
@@ -35,18 +38,22 @@ TID：1614
 
 有飛機的...
 
-[![有飛機的...](static/image/common/none.gif "有飛機的...")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![有飛機的...](static/image/common/none.gif "有飛機的...")](javascript:;)</ignore_js_op>  
 
 # 3
 
 謝謝回復~…
+
 我真是手生了..飛機都忘了加..
-不過現在加上了= =<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+不過現在加上了= = 
 
 # 4
 
 再次謝謝…
 
 Ps: 這張素材的確很好，
+
 但是美中不足的是——沒有完整的腳；她的臉部表情不適合圖中情景……
+
 所以……

@@ -4,7 +4,7 @@
 
 TID：23096
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -36,18 +36,20 @@ TID：23096
 
 2017-5-17 10:27 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > [nietao06027 發表於 2017-5-17 08:54](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=332664&ptid=23096)
+
 > iray渲染的有时候就是觉得背景像素点很明显，楼主有什么好的模型素材之类的网站吗？我看你这个背景和DA里面 ...
 
-等它渲染完了就没像素点了，但是实在好慢，我i7的cpu和1060的N卡都很吃力的样子，所以就半路取消啦，我模型都是从一个叫“cg艺术共和国”的网站上找的<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+等它渲染完了就没像素点了，但是实在好慢，我i7的cpu和1060的N卡都很吃力的样子，所以就半路取消啦，我模型都是从一个叫“cg艺术共和国”的网站上找的 
 
 # 3
 
 > [nietao06027 發表於 2017-5-17 11:08](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=332680&ptid=23096)
+
 > 我也尝试过用呆姿来渲染过，用IRAY的效果确实很不错，不过感觉像DA，tiny-mk、lfcfangts这些人的渲染的和呆 ...
 
 其实3Dlights还是最方便的，基本打3个灯质感还是可以的，还很快速，labean就坚持用，lfcfants的gif图片太赞了，但是图片感觉质感也一般。可能是用另一个渲染器叫reality，我也不知道欸。

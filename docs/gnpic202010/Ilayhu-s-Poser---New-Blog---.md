@@ -4,7 +4,7 @@
 
 TID：8334
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -30,11 +30,11 @@ ilayhu
 
 喜歡它：）
 
-ilayhu<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ilayhu 
 
 # 2
 
- <ignore_js_op>[Page_1.jpg](forum.php?mod=attachment&aid=MjEyNTN8YTk1MjlkMTd8MTYwMzg3ODA0OXwxODIzMHw4MzM0&nothumb=yes) *(470.44 KB, 下載次數: 2)*
+<ignore_js_op>[Page_1.jpg](forum.php?mod=attachment&aid=MjEyNTN8YTk1MjlkMTd8MTYwMzg3ODA0OXwxODIzMHw4MzM0&nothumb=yes) *(470.44 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=MjEyNTN8YTk1MjlkMTd8MTYwMzg3ODA0OXwxODIzMHw4MzM0&nothumb=yes)
 

@@ -4,11 +4,11 @@
 
 TID：8525
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-[local]3[/local]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[local]3[/local] 
 
 # 2
 

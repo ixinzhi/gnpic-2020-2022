@@ -4,15 +4,20 @@
 
 TID：18627
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 米娜桑！![](static/image/smiley/bigface/64.gif)
+
 因为楼主后天就开学了，在学校没法做图![](static/image/smiley/bigface/40.gif)
+
 所以，趁着这最后几天就随便来了几发poser的图![](static/image/smiley/bigface/7.gif)
+
 感谢大家一直以来的支持与厚爱，我们暑假见![](static/image/smiley/bigface/60.gif)
+
 （PS：前后图片间没有什么必然的联系，故事什么的自行脑补吧![](static/image/smiley/bigface/59.gif)）
+
 <ignore_js_op>![](img/b5f480f153cfffc55dba5d7d090ac92b.png)
 
 **n2.png** *(1.67 MB, 下載次數: 13)*

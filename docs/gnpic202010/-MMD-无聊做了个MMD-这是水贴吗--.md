@@ -4,11 +4,12 @@
 
 TID：16467
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 那么大家无聊的话就欣赏一下吧
+
 <ignore_js_op>![](img/3f81b35398eb1fb4c7f1870e0bfc99fe.png)
 
 **1.jpg** *(67.67 KB, 下載次數: 1)*
@@ -41,11 +42,11 @@ TID：16467
 
 2014-3-15 18:04 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
-呃，突然发现天空忘记做了，难怪那么不和谐<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+呃，突然发现天空忘记做了，难怪那么不和谐 
 
 # 3
 
@@ -57,29 +58,36 @@ TID：16467
 
 2014-3-15 18:14 上傳
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
 > [cat 發表於 2014-3-16 00:38](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=218191&ptid=16467)
+
 > 赞一下！感谢楼主的工作。
+
 > 顺便问一下，那架飞机边上的黑色散落的东西是怎么做的？ ...
 
 那个是一个叫“GlassBomb”的特效，就是玻璃破碎，然后调整成散落的样子
+
 这个特效我找了好久才找到
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 5
 
 > [餃子 發表於 2014-3-16 20:26](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=218257&ptid=16467)
+
 > ( ⊙ o ⊙ )好物，怎麼會水，給你32個贊
 
 谢谢，觉得好的话给个分嘛，最近缺奖励点![](static/image/smiley/bigface/11.gif)
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 6
 
 > [cat 發表於 2014-3-17 00:05](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=218269&ptid=16467)
+
 > 能分享一下吗,谢谢！
 
 嗯，给我你的邮箱，我发给你</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

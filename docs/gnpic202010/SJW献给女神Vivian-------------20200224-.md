@@ -4,26 +4,36 @@
 
 TID：28113
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 sjw 於 2020-2-25 09:11 編輯*
 
 **献给GTS-Vivian
+
 被该死的冠状病毒夺去生命的女神
+
 她的妙笔让巨娘粉们的梦栩栩如生
+
 她的长眠是巨娘界永远无法弥补的巨大损失
+
 此时此刻
+
 我 SJW
+
 一个Vivian毫不在意的微小奴仆
+
 只能献上几张拙劣的合成图
+
 给巨娘界的艺术女神**
+
 **<ignore_js_op>![](img/5fdac7ca8fef0b21efe245b15db61c35.png)</ignore_js_op>** ****EQ_gYvJXsAAUNZo.jpg** *(423.55 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=ODE1MzZ8OGRmZGY0NGV8MTYwMzgyODg4MXwxODIzMHwyODExMw%3D%3D&nothumb=yes)
 
 2020-2-21 05:02 上傳** 
+
 **<ignore_js_op>![](img/51f9c97bff000767c274230ef1b4630e.png)</ignore_js_op>** ****020558wotuoxdmuudx9u9u.jpg** *(153.2 KB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=ODE1Mzd8Y2JiMTg3NDN8MTYwMzgyODg4MXwxODIzMHwyODExMw%3D%3D&nothumb=yes)

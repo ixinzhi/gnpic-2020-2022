@@ -4,24 +4,32 @@
 
 TID：20525
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 迷途小喵 於 2018-2-1 11:41 編輯*
 
 哈囉，又是我勒~
+
 這次又來挖坑拉
+
 先上黑白封面吧
+
 ------------------------------------------------------------------------
+
 唉~畫個漫畫....用一個軟體畫.....一個軟體做對話框....一個軟體嵌字....想哭果然還是表現不出理想的感覺，肢體之類的也展不太開，成長畫面也不盡理想
+
 是不是放棄好呢.....這樣的作品會有人喜歡嗎........?
+
 ------------------------------------------------------------------------ <ignore_js_op>![](img/d2f50b403abe20f3c4cd7eb06b578e71.png)</ignore_js_op> **吸血魅魔封面.jpg** *(183.9 KB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=NTg5ODh8ZDlkNWFlNzh8MTYwMzg2MTcwM3wxODIzMHwyMDUyNQ%3D%3D&nothumb=yes)
 
 2016-2-2 23:47 上傳 
+
 2版
+
 <ignore_js_op>![](img/9b45873b410868835888f97008c3831a.png)</ignore_js_op> **吸血魅魔封面.jpg** *(183.7 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=NTg5OTd8N2NmYTE3MzF8MTYwMzg2MTcwM3wxODIzMHwyMDUyNQ%3D%3D&nothumb=yes)
@@ -31,6 +39,7 @@ TID：20525
 [下載附件](forum.php?mod=attachment&aid=NTkzNzl8MDcwYzljODd8MTYwMzg2MTcwM3wxODIzMHwyMDUyNQ%3D%3D&nothumb=yes)
 
 2016-2-17 00:22 上傳 突然覺得需要一點鋪陳，所以這幾天會從前面來更
+
 <ignore_js_op>![](img/d210932ba90a70334cce86280bc822e9.png)
 
 **吸血魅魔01.jpg** *(603.99 KB, 下載次數: 2)*
@@ -40,6 +49,7 @@ TID：20525
 2016-2-10 01:33 上傳
 
 -
+
 <ignore_js_op>![](img/0d6372a2dd69b284d5c3691027487fb3.png)
 
 **吸血魅魔02.jpg** *(673.1 KB, 下載次數: 2)*
@@ -104,15 +114,18 @@ TID：20525
 
 2016-2-14 21:07 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > [dsa123 發表於 2016-2-4 01:02](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=282556&ptid=20525)
+
 > 老实说这效果像shrink...
+
 > 最外面的是实线才对吧...
 
 我懂你的意思，不過這樣一來線條就變得很混雜了
+
 <ignore_js_op>![](img/cfd7fb7c84d733b3441d6147f43e5459.png)
 
 **吸血魅魔封面.jpg** *(171.82 KB, 下載次數: 0)*

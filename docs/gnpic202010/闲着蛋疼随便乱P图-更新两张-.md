@@ -4,13 +4,14 @@
 
 TID：14897
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本文章最後由 ADSL 於 2013-8-4 19:29 編輯*
 
 这里是没事找事做的某皮神（其实你丫是偷懒不想写文吧！玩OZ也好啊！![](static/image/smiley/bigface/21.gif)），于是乎来用Ps玩一玩。![](static/image/smiley/bigface/50.gif)
+
 至于水准你懂的（渣渣！![](static/image/smiley/bigface/63.gif)），**厚颜无耻求各种碳合金大砖块。**![](static/image/smiley/bigface/11.gif)
 
 第一张确实略违和，把透明度改了改。
@@ -33,7 +34,7 @@ TID：14897
 
 2013-8-4 11:17 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -56,5 +57,7 @@ TID：14897
 2013-8-4 19:26 上傳
 
 又来两张。
+
 个人认为第一张很违和，真的很违和，阴影部分不知道该怎么搞，求高手赐教~
+
 第二张也感觉有些不对的地方XD......</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

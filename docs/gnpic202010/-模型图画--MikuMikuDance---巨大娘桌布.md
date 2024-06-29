@@ -4,7 +4,7 @@
 
 TID：29147
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -15,11 +15,12 @@ TID：29147
 隨便做了幾個桌布（其實是好幾個月前做的）
 
 如果喜歡歡迎Download順便支持我哦
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[cats.jpg](forum.php?mod=attachment&aid=ODQxNDl8YmU0ZGQxZDZ8MTYwMzgyODE1OXwxODIzMHwyOTE0Nw%3D%3D&nothumb=yes) *(275.61 KB, 下載次數: 0)*
+<ignore_js_op>[cats.jpg](forum.php?mod=attachment&aid=ODQxNDl8YmU0ZGQxZDZ8MTYwMzgyODE1OXwxODIzMHwyOTE0Nw%3D%3D&nothumb=yes) *(275.61 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=ODQxNDl8YmU0ZGQxZDZ8MTYwMzgyODE1OXwxODIzMHwyOTE0Nw%3D%3D&nothumb=yes)
 

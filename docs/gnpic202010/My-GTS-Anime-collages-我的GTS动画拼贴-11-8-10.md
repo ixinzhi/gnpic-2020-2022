@@ -4,7 +4,7 @@
 
 TID：8494
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ I was able to learn some new tricks on some of these. I'm always trying to impro
 
 我能学到一些对其中一些新花样。我总是设法改善。尽情享受吧！
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[gts-next-17.jpg](forum.php?mod=attachment&aid=MjE2MDR8MmEyZWU4OTN8MTYwMzg3ODgzOHwxODIzMHw4NDk0&nothumb=yes) *(299.7 KB, 下載次數: 6)*
+<ignore_js_op>[gts-next-17.jpg](forum.php?mod=attachment&aid=MjE2MDR8MmEyZWU4OTN8MTYwMzg3ODgzOHwxODIzMHw4NDk0&nothumb=yes) *(299.7 KB, 下載次數: 6)*
 
 [下載附件](forum.php?mod=attachment&aid=MjE2MDR8MmEyZWU4OTN8MTYwMzg3ODgzOHwxODIzMHw4NDk0&nothumb=yes)
 

@@ -4,7 +4,7 @@
 
 TID：19087
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -35,6 +35,7 @@ TID：19087
 2015-6-3 20:04 上傳
 
 还有一张由于剧情还没到那里，暂时不发了。
+
 欢迎加群457681764 <ignore_js_op>![](img/e8f4c9e828a0b6f14593b352d50744db.png)
 
 **2015.6.3.jpg** *(1.43 MB, 下載次數: 7)*
@@ -43,11 +44,12 @@ TID：19087
 
 2015-6-3 20:25 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > 3213213210 發表於 2015-6-3 22:11
+
 > 我不確定該不該送獎勵點
 
 都是鬼蝶画的，去送给鬼蝶去吧</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

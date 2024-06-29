@@ -4,11 +4,12 @@
 
 TID：330
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 初学POSER,技术还不太好.希望大家喜欢.
+
 <ignore_js_op>![](static/image/common/none.gif)
 
 **Render1.jpg** *(32.54 KB, 下載次數: 4)*

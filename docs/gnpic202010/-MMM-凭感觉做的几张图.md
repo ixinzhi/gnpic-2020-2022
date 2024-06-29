@@ -4,16 +4,18 @@
 
 TID：15875
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 中午上Q途中突然死机，重启一看，又是喜闻乐见的无法检测硬盘，这已经是我近两年内第二次硬盘损坏了，无良的西部数据次品货真是越来越多，只好把以前旧电脑的三星IDE硬盘拿出来凑合用了，里面啥都没就剩下个MMM（可以当作是MMD的傻瓜版），就折腾了几个小时弄了几张图。
 
 model似乎是DA某个作者以BRS为原型自己魔改的原创人物，蓝发少年好久以前下的，我不太记得了，都是出自DA。
+
 特效用了柔光、SSAO、倒影还有质感渲染啥的，基本上MMD图不做裸足不做破坏场景的话这几个特效就够用了。
 
 这次尝试一下走唯美温柔戒撸风，无奈水平有限加上MMM支持的特效实在是少，凑合也就这效果了。
+
 大概就是类似「少年与被封印的少女邂逅」这种感觉吧，如果有人觉得这个老土题材可以一写，那就太好了啊。
 
 对了，这个点开大图看效果可能会好一些，毕竟是1680*1050的，都能做壁纸了
@@ -66,12 +68,14 @@ model似乎是DA某个作者以BRS为原型自己魔改的原创人物，蓝发�
 
 2014-1-1 20:16 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > 小劍 發表於 2014-1-1 20:39 [](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=211777&ptid=15875)
+
 > 十八子重出江湖现在是隶属于制图者阶级么
+
 > 以前不还是写文的么
 
 咦，那文不是坑了么！没坑就酷爱更啦！</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

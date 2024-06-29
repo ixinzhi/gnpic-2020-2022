@@ -4,36 +4,43 @@
 
 TID：22492
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 hsxz 於 2017-1-30 21:09 編輯*
+
 **人物＆背景介绍：****[超·链接](http://giantessnight.com/gnforum2012/forum.php?mod=viewthread&tid=22532)****（有****一张额外的福利****哦）**
+
 **作图＆****脚本：[廻世行者](http://giantessnight.com/gnforum2012/home.php?mod=space&uid=19836)（就是我）
+
 脚本＆润色＆嵌字：[starcraftorz](http://giantessnight.com/gnforum2012/home.php?mod=space&uid=12944)** **接下来是封面**
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[封面0.jpg](forum.php?mod=attachment&aid=NjY2NzF8ZTQwOTM4YWN8MTYwMzg0OTc5MHwxODIzMHwyMjQ5Mg%3D%3D&nothumb=yes) *(586 KB, 下載次數: 20)*
+<ignore_js_op>[封面0.jpg](forum.php?mod=attachment&aid=NjY2NzF8ZTQwOTM4YWN8MTYwMzg0OTc5MHwxODIzMHwyMjQ5Mg%3D%3D&nothumb=yes) *(586 KB, 下載次數: 20)*
 
 [下載附件](forum.php?mod=attachment&aid=NjY2NzF8ZTQwOTM4YWN8MTYwMzg0OTc5MHwxODIzMHwyMjQ5Mg%3D%3D&nothumb=yes)
 
 2017-1-30 20:57 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![封面0.jpg](img/9f5200dc8c9d7ec1b7a6a9eb01be83c5.png "封面0.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![封面0.jpg](img/9f5200dc8c9d7ec1b7a6a9eb01be83c5.png "封面0.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 *本帖最後由 hsxz 於 2017-1-30 21:17 編輯*
 
 2l留给自己。。。。。。。。。。
+
 **楼层引导**
+
 03F_第一话
+
 09F_第二话 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 4
 
@@ -110,45 +117,56 @@ TID：22492
 2017-1-22 23:55 上傳
 
 话说我会上传高清网盘的合集的，下载在楼下，全是bmp，文件会很大。
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 5
 
 本次更新先到这里，之后的剧情是失控和继续变大，以及于研究者发生冲突等。福利也会越来越多滴！话说如果有人愿意嵌字和写脚本的话，可以找我私聊。。。虽然，我不一定做得出就是啦2333话说这里是bmp地址
-链接：[http://pan.baidu.com/s/1sl8Oz7J](http://pan.baidu.com/s/1sl8Oz7J) 密码：0j1d<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+链接：[http://pan.baidu.com/s/1sl8Oz7J](http://pan.baidu.com/s/1sl8Oz7J) 密码：0j1d 
 
 # 6
 
 > [ckw 發表於 2017-1-23 20:46](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=321268&ptid=22492)
+
 > 剛進來看縮圖，我在想之後會不會大到撐爆衣，因為衣服小到露出南半球
+
 > 看完第一張後……衣服是關鍵道具，應 ...
 
-谢谢，读得很仔细，看来我还是不能舍去嵌字的工序。之后内容对话框都会上去的。至于全裸。。。如果你也没有那么期待的话我就不加了，我个人不怎么喜欢把巨大娘元素和黄色融合在一起。<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+谢谢，读得很仔细，看来我还是不能舍去嵌字的工序。之后内容对话框都会上去的。至于全裸。。。如果你也没有那么期待的话我就不加了，我个人不怎么喜欢把巨大娘元素和黄色融合在一起。 
 
 # 7
 
 > [ckw 發表於 2017-1-24 03:25](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=321298&ptid=22492)
+
 > ＞＞看来我还是不能舍去嵌字的工序。
+
 > 單一兩張圖可以不用說故事，可以直接H。這點作文是做不到，不可能一 ...
 
-我确实能把人物和衣物分离，但并不接受露点和sex的镜头(´-ι_-｀)因为个人觉得巨大少女是一种反差萌，污了就有点辣眼睛。不过为了观众，我还是会尽量多打打擦边球的(๑•̀ᄇ•́)و ✧<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+我确实能把人物和衣物分离，但并不接受露点和sex的镜头(´-ι_-｀)因为个人觉得巨大少女是一种反差萌，污了就有点辣眼睛。不过为了观众，我还是会尽量多打打擦边球的(๑•̀ᄇ•́)و ✧ 
 
 # 8
 
 > [ckw 發表於 2017-1-24 21:47](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=321366&ptid=22492)
+
 > 雖然覺得要有反差萌，但多半女主角都一瞬間接受巨大化，行為上毫不掩飾。我作文時的感覺反差萌不好寫，所 ...
 
 分离是可以，但是要撑破就不容易了。所以说分离其实并不实用拉
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 9
 
 > [ckw 發表於 2017-1-25 00:08](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=321391&ptid=22492)
+
 > 試了一下HoneyStudio，還是不行，衣服縮小需要MOD支持？
+
 > 題外話，HS比MMD難用，動作調不出來，都用HS預設 ...
 
 是的，要mod的。。。。。。。。。
-<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 10
 
@@ -157,13 +175,14 @@ TID：22492
 更新完成![](static/image/smiley/girl/16.png)
 
 这是网盘链接：[http://pan.baidu.com/s/1boAwRKz](http://pan.baidu.com/s/1boAwRKz) 和密码：cdnb
+
 可供下载用
 
-<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 11
 
- <ignore_js_op>[00.jpg](forum.php?mod=attachment&aid=NjY2MTB8ZTVkY2ZlMmF8MTYwMzg0OTc5MHwxODIzMHwyMjQ5Mg%3D%3D&nothumb=yes) *(317.26 KB, 下載次數: 8)*
+<ignore_js_op>[00.jpg](forum.php?mod=attachment&aid=NjY2MTB8ZTVkY2ZlMmF8MTYwMzg0OTc5MHwxODIzMHwyMjQ5Mg%3D%3D&nothumb=yes) *(317.26 KB, 下載次數: 8)*
 
 [下載附件](forum.php?mod=attachment&aid=NjY2MTB8ZTVkY2ZlMmF8MTYwMzg0OTc5MHwxODIzMHwyMjQ5Mg%3D%3D&nothumb=yes)
 
@@ -277,17 +296,19 @@ TID：22492
 
 2017-1-30 13:44 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![18.jpg](img/ae58119fea7eeeef745813a2af1e4e9f.png "18.jpg")](javascript:;)</ignore_js_op> <title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![18.jpg](img/ae58119fea7eeeef745813a2af1e4e9f.png "18.jpg")](javascript:;)</ignore_js_op>  
 
 # 12
 
 > [JOYYSOSOSO 發表於 2017-1-30 16:56](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=321964&ptid=22492)
+
 > hsxz大大又一次精彩作品。。。顺便一问。。。能不能介绍几个大城市 或者类似于这个故事里面的城堡的MOD。。 ...
 
 很遗憾，指路是不被允许的，但我可以出示一个mod网[http://www.uu-gg.info/forum.php](http://www.uu-gg.info/forum.php)
 
 注册一个账号，完成任务，并每日签到，过个两三天就能在那边下载了
-<title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 13
 

@@ -4,11 +4,12 @@
 
 TID：21905
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 嘛...很多人觉得上一个男主不好看..但是我对捏男人不是很有手感...所以就凑合着吧...![](static/image/smiley/girl/24.png)还有~文字调大了~~![](static/image/smiley/girl/16.png)
+
 <ignore_js_op>![](img/e6c79ecd2b614bceaf5302549eca684d.png)
 
 **HoneyStudio_64 2016-10-01 00-51-37-83.bmp** *(3 MB, 下載次數: 257)*
@@ -401,7 +402,7 @@ TID：21905
 
 2016-10-1 17:03 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

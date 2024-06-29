@@ -4,7 +4,7 @@
 
 TID：4085
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ Hello everyone. It's been awhile, I just wanted to post this to see what you all
 
 大家好。这是一段时间，我只是想张贴此看看大家想一想。我用这两个三维定制女孩和波塞尔7做到这一点。我希望大家喜欢！
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[orge-1.jpg](forum.php?mod=attachment&aid=MTE4Mjd8YjlkOWQ0ZjZ8MTYwMzg3NTg4N3wxODIzMHw0MDg1&nothumb=yes) *(129.18 KB, 下載次數: 5)*
+<ignore_js_op>[orge-1.jpg](forum.php?mod=attachment&aid=MTE4Mjd8YjlkOWQ0ZjZ8MTYwMzg3NTg4N3wxODIzMHw0MDg1&nothumb=yes) *(129.18 KB, 下載次數: 5)*
 
 [下載附件](forum.php?mod=attachment&aid=MTE4Mjd8YjlkOWQ0ZjZ8MTYwMzg3NTg4N3wxODIzMHw0MDg1&nothumb=yes)
 

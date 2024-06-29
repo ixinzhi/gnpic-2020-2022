@@ -4,11 +4,11 @@
 
 TID：22489
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-没有的拿走，有的算了：pan.ba呵呵idu.com/sha呵呵re/link?shareid=191976呵呵8063&uk=4180呵呵845719     ，，，，，去掉呵呵<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+没有的拿走，有的算了：pan.ba呵呵idu.com/sha呵呵re/link?shareid=191976呵呵8063&uk=4180呵呵845719     ，，，，，去掉呵呵 
 
 # 2
 

@@ -4,7 +4,7 @@
 
 TID：2638
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -18,11 +18,11 @@ PoserL 34-57
 
 [http://www.megaupload.com/?d=HQ17KYMM](http://www.megaupload.com/?d=HQ17KYMM)
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[PoserL34.png](forum.php?mod=attachment&aid=ODAwN3w0MzVkMjUyNXwxNjAzODc1Mjg3fDE4MjMwfDI2Mzg%3D&nothumb=yes) *(99.84 KB, 下載次數: 6)*
+<ignore_js_op>[PoserL34.png](forum.php?mod=attachment&aid=ODAwN3w0MzVkMjUyNXwxNjAzODc1Mjg3fDE4MjMwfDI2Mzg%3D&nothumb=yes) *(99.84 KB, 下載次數: 6)*
 
 [下載附件](forum.php?mod=attachment&aid=ODAwN3w0MzVkMjUyNXwxNjAzODc1Mjg3fDE4MjMwfDI2Mzg%3D&nothumb=yes)
 

@@ -4,11 +4,12 @@
 
 TID：25367
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 閃乱カグラ PBS
+
 人物大小: 300% vs 50% (6倍比例)
 
 <ignore_js_op>![](img/7f3920d1b20bde25ab43052cd78ea68b.png)

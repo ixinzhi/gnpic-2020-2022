@@ -4,15 +4,15 @@
 
 TID：27805
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-群号在912770616，咕咕咕咕咕咕不过也没人玩<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+群号在912770616，咕咕咕咕咕咕不过也没人玩 
 
 # 2
 
- <ignore_js_op>[_535220857_VRChat_1920x1080_2020-01-02_18-24-09.894_1577959984000_wifi_0.jpg](forum.php?mod=attachment&aid=ODA3OTd8OGRiY2Y3NzN8MTYwMzgzNDk3M3wxODIzMHwyNzgwNQ%3D%3D&nothumb=yes) *(52.86 KB, 下載次數: 8)*
+<ignore_js_op>[_535220857_VRChat_1920x1080_2020-01-02_18-24-09.894_1577959984000_wifi_0.jpg](forum.php?mod=attachment&aid=ODA3OTd8OGRiY2Y3NzN8MTYwMzgzNDk3M3wxODIzMHwyNzgwNQ%3D%3D&nothumb=yes) *(52.86 KB, 下載次數: 8)*
 
 [下載附件](forum.php?mod=attachment&aid=ODA3OTd8OGRiY2Y3NzN8MTYwMzgzNDk3M3wxODIzMHwyNzgwNQ%3D%3D&nothumb=yes)
 
@@ -72,35 +72,39 @@ TID：27805
 
 2020-1-4 11:31 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![_1985785832_VRChat_1920x1080_2019-12-31_17-10-33.791_1577784428000_wifi_0.jpg](img/3f523d7386e5fcd4574f93ac8ee35059.png "_1985785832_VRChat_1920x1080_2019-12-31_17-10-33.791_1577784428000_wifi_0.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![_1985785832_VRChat_1920x1080_2019-12-31_17-10-33.791_1577784428000_wifi_0.jpg](img/3f523d7386e5fcd4574f93ac8ee35059.png "_1985785832_VRChat_1920x1080_2019-12-31_17-10-33.791_1577784428000_wifi_0.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > SuperHot 發表於 2020-1-5 22:32
+
 > 没有设备，VR类游戏都没买过
 
-免费的pc steam游戏，动不动就说要vr<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+免费的pc steam游戏，动不动就说要vr 
 
 # 4
 
 > 超SizeJKGirl 發表於 2020-1-4 18:16
+
 > 我比較想知道為啥vrchat可以用這麼大
+
 > 巨大娘跟小人都是玩家在操作的嗎？
+
 > 而且怎麼能把玩家拿在手上或放在身 ...
 
-进群问我最近很少上gn。。。。。<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+进群问我最近很少上gn。。。。。 
 
 # 5
 
-你们问题这些进群问。。。gn不常上。。。。。。<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+你们问题这些进群问。。。gn不常上。。。。。。 
 
 # 6
 
-不能沉啊。。。。。。。。<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+不能沉啊。。。。。。。。 
 
 # 7
 
-不能沉啊，欢迎大佬加群<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+不能沉啊，欢迎大佬加群 
 
 # 8
 

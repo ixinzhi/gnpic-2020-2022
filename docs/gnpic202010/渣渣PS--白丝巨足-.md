@@ -4,7 +4,7 @@
 
 TID：25883
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -16,11 +16,12 @@ TID：25883
 
 2018-9-23 11:39 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > [598049860sys 發表於 2018-9-23 14:31](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=387878&ptid=25883)
+
 > 这个白丝的原图是什么
 
 舰C 群友发的社保图 我也不知道哪来的</ignore_js_op>

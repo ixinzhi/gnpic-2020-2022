@@ -4,7 +4,7 @@
 
 TID：8602
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -12,11 +12,11 @@ Did this one last night. Was finally able to find my favorite lighting. Enjoy.
 
 ![](static/image/smiley/bigface/38.gif)
 
-难道这最后一个夜晚。终于能够找到我最喜欢的照明。享受。<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+难道这最后一个夜晚。终于能够找到我最喜欢的照明。享受。 
 
 # 2
 
- <ignore_js_op>[poser-24.jpg](forum.php?mod=attachment&aid=MjE4MTZ8ZWMzMTYwOWZ8MTYwMzg3NjczMXwxODIzMHw4NjAy&nothumb=yes) *(211.38 KB, 下載次數: 19)*
+<ignore_js_op>[poser-24.jpg](forum.php?mod=attachment&aid=MjE4MTZ8ZWMzMTYwOWZ8MTYwMzg3NjczMXwxODIzMHw4NjAy&nothumb=yes) *(211.38 KB, 下載次數: 19)*
 
 [下載附件](forum.php?mod=attachment&aid=MjE4MTZ8ZWMzMTYwOWZ8MTYwMzg3NjczMXwxODIzMHw4NjAy&nothumb=yes)
 

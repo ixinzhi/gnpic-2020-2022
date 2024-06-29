@@ -4,24 +4,31 @@
 
 TID：26268
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 承續上次翻譯的 Portals 1
+
 這次是第二集
+
 有興趣的朋友可以先去看看第一集
+
 一樣提供原始版網頁：https://ww w.gia ntess fan.com/com ics/Portal s-2/c=17 9/
 
 祝大家新年快樂！
+
 有空會再繼續翻譯續作
+
 麻煩大家給個讚或評論喔
+
 感謝感謝
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[14.jpg](forum.php?mod=attachment&aid=NzYwOTN8OGE3NjZmODZ8MTYwMzg0MDE4NXwxODIzMHwyNjI2OA%3D%3D&nothumb=yes) *(323.66 KB, 下載次數: 16)*
+<ignore_js_op>[14.jpg](forum.php?mod=attachment&aid=NzYwOTN8OGE3NjZmODZ8MTYwMzg0MDE4NXwxODIzMHwyNjI2OA%3D%3D&nothumb=yes) *(323.66 KB, 下載次數: 16)*
 
 [下載附件](forum.php?mod=attachment&aid=NzYwOTN8OGE3NjZmODZ8MTYwMzg0MDE4NXwxODIzMHwyNjI2OA%3D%3D&nothumb=yes)
 

@@ -4,19 +4,19 @@
 
 TID：12093
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-如题，不要吐槽，谢谢！<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+如题，不要吐槽，谢谢！ 
 
 # 2
 
-没办法先传这些吧，剩下的以后再说。<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+没办法先传这些吧，剩下的以后再说。 
 
 # 3
 
- <ignore_js_op>[WoWScrnShot_091210_152901.jpg](forum.php?mod=attachment&aid=MjgxMTd8NjJkN2Y1YzB8MTYwMzg3NTQyOXwxODIzMHwxMjA5Mw%3D%3D&nothumb=yes) *(224.33 KB, 下載次數: 5)*
+<ignore_js_op>[WoWScrnShot_091210_152901.jpg](forum.php?mod=attachment&aid=MjgxMTd8NjJkN2Y1YzB8MTYwMzg3NTQyOXwxODIzMHwxMjA5Mw%3D%3D&nothumb=yes) *(224.33 KB, 下載次數: 5)*
 
 [下載附件](forum.php?mod=attachment&aid=MjgxMTd8NjJkN2Y1YzB8MTYwMzg3NTQyOXwxODIzMHwxMjA5Mw%3D%3D&nothumb=yes)
 

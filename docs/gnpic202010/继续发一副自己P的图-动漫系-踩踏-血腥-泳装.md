@@ -4,15 +4,15 @@
 
 TID：12947
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-技术锻炼中.........<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+技术锻炼中......... 
 
 # 2
 
- <ignore_js_op>[复件 144232jt0z0etg6gj6yg65.jpg](forum.php?mod=attachment&aid=Mjk5OTl8NmY4N2IxNmN8MTYwMzg2NjE5N3wxODIzMHwxMjk0Nw%3D%3D&nothumb=yes) *(33.14 KB, 下載次數: 81)*
+<ignore_js_op>[复件 144232jt0z0etg6gj6yg65.jpg](forum.php?mod=attachment&aid=Mjk5OTl8NmY4N2IxNmN8MTYwMzg2NjE5N3wxODIzMHwxMjk0Nw%3D%3D&nothumb=yes) *(33.14 KB, 下載次數: 81)*
 
 [下載附件](forum.php?mod=attachment&aid=Mjk5OTl8NmY4N2IxNmN8MTYwMzg2NjE5N3wxODIzMHwxMjk0Nw%3D%3D&nothumb=yes)
 

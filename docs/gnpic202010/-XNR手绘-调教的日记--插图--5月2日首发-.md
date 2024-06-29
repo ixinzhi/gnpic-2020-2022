@@ -4,17 +4,20 @@
 
 TID：18928
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 .
+
 很久没有画GTS图了，这次一来是为了恢复功力，二来也是为了我喜欢的一部GTS作品《调教的日记》做插图，激励原作者 [@861861861](https://giantessnight.com/gnforum2012/home.php?mod=space&uid=5518) 继续创作。
 
 文字版权归 [861861861](http://giantessnight.com/gnforum2012/home.php?mod=space&uid=5518) 君所有，原文章：
+
 [http://giantessnight.com/gnforum ... tra=page%3D1&page=1](http://giantessnight.com/gnforum2012/forum.php?mod=viewthread&tid=15163&extra=page%3D1&page=1)
 
 尝试了下不同的画风和构图，简单的困难的都稍微试了下，主要还是练练笔，恢复下功力。
+
 我现在还在为另一个作者的GTS文章作品画插图，其他有意向合作的圈内创作者朋友们，欢迎私下跟我交流。
 
 ===================================================  原文互动内容很多，但是自己的时间和精力有限。。。所以原则上每一章节配一张插图，先放出三张吧，以后的再慢慢更新：
@@ -36,125 +39,157 @@ TID：18928
 2015-5-2 16:17 上傳
 
 （点击可看大图） （这张自我感觉效果好一点。。。）关于妹妹的人设（以后还有姐姐），我是在征询过原作者的建议后自己设计的，设计的不好请多多包涵。以后每一章节的新插图，我都会在这里更新，欢迎大家交流并提出自己想要的镜头，我会尽可能照顾大家的偏好的，谢谢！
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
 > [darkbolt 發表於 2015-5-2 20:09](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=253586&ptid=18928)
+
 > micro怎么办啊~好期待啊~
 
 欢迎提出你自己的想法，或许我能参考你的建议
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 3
 
 > [nijack89 發表於 2015-5-2 21:02](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=253595&ptid=18928)
+
 > 多謝X大
+
 > 讓我發現一篇好文
+
 > 另外在第三張中
 
 原来这么经典的好文你都没仔细看啊！！！ 拖出去打板子！！！
 
 你怎么不说男主角尺寸越来越小了呢？
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
 > [Eighteen 發表於 2015-5-2 22:54](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=253606&ptid=18928)
+
 > 这嘴唇……跟以前的作品相比叼了好几个层次，有那种樱桃小嘴的感觉了！嘴唇好看了，感觉整个人漂亮了很多啊 ...
 
 嘴唇的这种画法其实是非常简单省力的。。。我一直在试图寻找一种简单又好看的画风，这样可以大批量产图。
+
 话说你居然没有提到你最喜欢的部分。。。
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 5
 
 > [861861861 發表於 2015-5-3 00:58](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=253627&ptid=18928)
+
 > 看到自己的文字被配图忽然间就有点不好意思了>
 
 后面还有被姐姐调教的内容啊。。。话说你啥时候更新啊？
+
 你更新后我也更新插图。
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
 > [sx101 發表於 2015-5-3 11:36](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=253656&ptid=18928)
+
 > 大触啊  画的非常不错啊  准备花多少插图呢
 
 又一个没认真看帖子的，我介绍里不是说的很清楚了吗？
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 7
 
 > [dijkstra 發表於 2015-5-5 09:23](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=253819&ptid=18928)
+
 > XNR你也想到妹妹穿长袖制服配裙子啊哈哈哈。micro的话，不选好角度真的好难表现，到现在似乎也没有见过很多 ...
 
 你点我的个人资料，看看我最早时期的作品，你就会信心大增的。
 
 我也是自学成才，靠模仿起家的。
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 8
 
 > [dijkstra 發表於 2015-5-5 12:53](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=253847&ptid=18928)
+
 > 握手，都是自学呀~xnr你现在画画频率如何？
 
 你看我在GN发原创图的频率就知道了。。。
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 9
 
 > [dijkstra 發表於 2015-5-6 00:26](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=253915&ptid=18928)
+
 > 你不会只画gts图吧？
+
 > xnr没有萌别的属性嘛？
 
 什么叫萌别的属性？没有
-<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 10
 
 > [dijkstra 發表於 2015-5-6 17:28](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=253942&ptid=18928)
+
 > 最近搞到一本手和脚的素描教材，结构一下子被纠正过来，感觉打开了新世界的大门。
+
 > ...
 
 加油啊，如果是电子版的话，求分享
-<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 11
 
 > [414215152 發表於 2015-5-6 22:33](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=253961&ptid=18928)
+
 > 还好今天无聊看看回复，这句话我不能装作没看到(ง •̀_•́)ง我也要新世界的大门(ง •̀_•́)ง ...
 
 。。。。。。你直接把楼主无视了，至少评个分吧
-<title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 12
 
 > [414215152 發表於 2015-5-8 20:48](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=254121&ptid=18928)
+
 > 成年女性的手就这么一页带过？！
+
 > 原来你不是用来画女巨人的啊
 
 这是市面上常见的严肃的绘画教材，你为什么要质疑好心上传的同好呢？
 
 不然你以为这个教材应该是怎样的？满满的福利还是什么？
-<title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 13
 
 > [414215152 發表於 2015-5-8 20:48](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=254121&ptid=18928)
+
 > 成年女性的手就这么一页带过？！
+
 > 原来你不是用来画女巨人的啊
 
 没回复？ 请问，市面上你能不能找到一本绘画教材，里面只有女性身体部位的？
-<title>14</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 14
 
 *本帖最後由 xnr 於 2015-5-13 22:20 編輯*
 
 > [414215152 發表於 2015-5-13 20:18](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=254523&ptid=18928)
+
 > 唉...你不说我都差点忘了问，这个是什么书啊？
 
 日本貌似有一些比较暴露的女性人体特写，国内书店美术教材基本上看不到。

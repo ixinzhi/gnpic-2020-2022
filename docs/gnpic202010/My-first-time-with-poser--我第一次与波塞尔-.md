@@ -4,7 +4,7 @@
 
 TID：2613
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -16,11 +16,11 @@ Man its hard but fun. I hope you enjoy. Even if I am still a beginner.
 
 YA-HA!!!
 
-[ *本帖最後由 Trayx 於 2009-4-20 07:01 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 Trayx 於 2009-4-20 07:01 編輯* ] 
 
 # 2
 
- <ignore_js_op>[poser gs1.png](forum.php?mod=attachment&aid=Nzg5NXw0OWFjOGFkYXwxNjAzODc3NTEzfDE4MjMwfDI2MTM%3D&nothumb=yes) *(80.96 KB, 下載次數: 8)*
+<ignore_js_op>[poser gs1.png](forum.php?mod=attachment&aid=Nzg5NXw0OWFjOGFkYXwxNjAzODc3NTEzfDE4MjMwfDI2MTM%3D&nothumb=yes) *(80.96 KB, 下載次數: 8)*
 
 [下載附件](forum.php?mod=attachment&aid=Nzg5NXw0OWFjOGFkYXwxNjAzODc3NTEzfDE4MjMwfDI2MTM%3D&nothumb=yes)
 
@@ -98,7 +98,7 @@ YA-HA!!!
 
 2009-4-19 03:37 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![poser gs13.png](static/image/common/none.gif "poser gs13.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![poser gs13.png](static/image/common/none.gif "poser gs13.png")](javascript:;)</ignore_js_op>  
 
 # 3
 
@@ -110,11 +110,11 @@ Now I got so scenes!
 
 YA-HA!!!
 
-[ *本帖最後由 Trayx 於 2009-4-20 07:01 編輯* ]<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 Trayx 於 2009-4-20 07:01 編輯* ] 
 
 # 4
 
- <ignore_js_op>[poser gs14.png](forum.php?mod=attachment&aid=NzkyOXxlZGI0ZmEyZnwxNjAzODc3NTEzfDE4MjMwfDI2MTM%3D&nothumb=yes) *(353.3 KB, 下載次數: 8)*
+<ignore_js_op>[poser gs14.png](forum.php?mod=attachment&aid=NzkyOXxlZGI0ZmEyZnwxNjAzODc3NTEzfDE4MjMwfDI2MTM%3D&nothumb=yes) *(353.3 KB, 下載次數: 8)*
 
 [下載附件](forum.php?mod=attachment&aid=NzkyOXxlZGI0ZmEyZnwxNjAzODc3NTEzfDE4MjMwfDI2MTM%3D&nothumb=yes)
 

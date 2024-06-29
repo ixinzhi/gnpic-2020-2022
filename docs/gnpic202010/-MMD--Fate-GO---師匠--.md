@@ -4,16 +4,20 @@
 
 TID：23583
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 ckw 於 2017-8-1 02:16 編輯*
 
 昨天配佈的MMD新模スカサハ，出自FGO但我沒有玩FGO。
+
 雖然沒玩，但依我所知，スカサハ是Fate/stay night的藍傻子（=Lancer）的師傅……好像。
+
 嗯，緊身衣（？）
+
 原本想擺抱枕想見姿勢，但想到要手動調教全身柯娜多姿的曲線姿勢就迅放棄，最後變成簡單的站姿。
+
 另外，之前看了B宣傳FGO三藏法師登陸國服的廣告……MMD甚麼才有BIGBIG胸肌的三藏法師的模型呢？
 
 <ignore_js_op>![](img/79a10efba18a106f6bb5e3052bd156bf.png)
@@ -42,12 +46,14 @@ TID：23583
 
 2017-7-31 21:57 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > [Lemones 發表於 2017-8-2 23:57](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=342608&ptid=23583)
+
 > 本以为自从sizebox出现，MMD越来越不稀罕来着
+
 > 看到这柔和的人工渲染，不一样的场景，真是找到了原来的配方 ...
 
 我覺得用R18模型比MME更有用。</ignore_js_op></ignore_js_op></ignore_js_op>

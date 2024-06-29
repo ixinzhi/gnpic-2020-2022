@@ -4,25 +4,31 @@
 
 TID：26989
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 好久沒更新了！
+
 最近比較沒時間。
+
 最新翻譯的第6集
 
 女巨人安柏跟黛比愛麗絲的對戰
+
 究竟是誰贏呢？
+
 這集也有吞食請注意
+
 各位大大下載的同時也希望給個讚讓我更有動力翻譯下去哦
+
 感謝大家
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[13.jpg](forum.php?mod=attachment&aid=Nzg4MzF8YTA2MDczMjF8MTYwMzg0MDE1OHwxODIzMHwyNjk4OQ%3D%3D&nothumb=yes) *(464.71 KB, 下載次數: 7)*
+<ignore_js_op>[13.jpg](forum.php?mod=attachment&aid=Nzg4MzF8YTA2MDczMjF8MTYwMzg0MDE1OHwxODIzMHwyNjk4OQ%3D%3D&nothumb=yes) *(464.71 KB, 下載次數: 7)*
 
 [下載附件](forum.php?mod=attachment&aid=Nzg4MzF8YTA2MDczMjF8MTYwMzg0MDE1OHwxODIzMHwyNjk4OQ%3D%3D&nothumb=yes)
 
@@ -50,12 +56,14 @@ TID：26989
 
 點擊文件名下載附件
 
-3.83 MB, 下載次數: 342</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+3.83 MB, 下載次數: 342</ignore_js_op>  
 
 # 3
 
 > [火焰復甦 發表於 2019-6-14 21:23](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=407486&ptid=26989)
+
 > 大佬啥时候翻译7呀
+
 > 我觉得字有点小 下次我觉得可以大一点
 
 我也覺得 但他英文版就這麼小 我沒改動他的版面設計

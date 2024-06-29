@@ -4,7 +4,7 @@
 
 TID：9163
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -16,11 +16,11 @@ Here is my latest loli clip. Enjoy!
 
 YA-HA!!!
 
-http://www.megaupload.com/?d=KGJCZBQA<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+http://www.megaupload.com/?d=KGJCZBQA 
 
 # 2
 
- <ignore_js_op>[vlcsnap-244976.png](forum.php?mod=attachment&aid=MTMxNjl8NTJkODZkOTd8MTYwMzg3NzU1MHwxODIzMHw5MTYz&nothumb=yes) *(226.48 KB, 下載次數: 53)*
+<ignore_js_op>[vlcsnap-244976.png](forum.php?mod=attachment&aid=MTMxNjl8NTJkODZkOTd8MTYwMzg3NzU1MHwxODIzMHw5MTYz&nothumb=yes) *(226.48 KB, 下載次數: 53)*
 
 [下載附件](forum.php?mod=attachment&aid=MTMxNjl8NTJkODZkOTd8MTYwMzg3NzU1MHwxODIzMHw5MTYz&nothumb=yes)
 

@@ -4,16 +4,17 @@
 
 TID：24537
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 photoshop合成图                                 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[1图.jpg](forum.php?mod=attachment&aid=NzA4ODl8YjUwMmYwZmZ8MTYwMzg1MjUwNnwxODIzMHwyNDUzNw%3D%3D&nothumb=yes) *(1.09 MB, 下載次數: 0)*
+<ignore_js_op>[1图.jpg](forum.php?mod=attachment&aid=NzA4ODl8YjUwMmYwZmZ8MTYwMzg1MjUwNnwxODIzMHwyNDUzNw%3D%3D&nothumb=yes) *(1.09 MB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=NzA4ODl8YjUwMmYwZmZ8MTYwMzg1MjUwNnwxODIzMHwyNDUzNw%3D%3D&nothumb=yes)
 

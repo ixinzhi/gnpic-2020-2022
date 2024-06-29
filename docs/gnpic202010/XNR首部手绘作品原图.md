@@ -4,7 +4,7 @@
 
 TID：2095
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -62,22 +62,28 @@ TID：2095
 
 2009-2-18 14:02 上傳
 
-[ *本帖最後由 xnr 於 2009-6-26 11:32 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2009-6-26 11:32 編輯* ] 
 
 # 2
 
 > 原帖由 *1059860* 於 2009-2-18 14:57 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=25337&ptid=2095)
+
 > ![](static/image/smiley/bigface/40.gif)
+
 > 呃……我还以为是手绘铅笔稿！！！！！！！
+
 > 白热情了一阵，就是没了对话框……![](static/image/smiley/bigface/6.gif)
+
 > 对了，这是你原来的分辨率× ...
 
 这个。。。不晓得要线条稿做什么呢？
-至于分辨率，如果太大了画起来会比较吃力，一般我用1024*768的大小会比较合适。<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+至于分辨率，如果太大了画起来会比较吃力，一般我用1024*768的大小会比较合适。 
 
 # 3
 
 > 原帖由 *yanmiaoyan* 於 2009-2-18 16:41 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=25363&ptid=2095)
+
 > flash，吉里吉里，rpgmaker做游戏各有优劣，不知道哪一种比较适合呢？
 
 我是倾向于RPG游戏，然后做一些高质量的插图，其他类型的游戏貌似基本上都是由大量图片构成的，这样的话我的压力就太大了。</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

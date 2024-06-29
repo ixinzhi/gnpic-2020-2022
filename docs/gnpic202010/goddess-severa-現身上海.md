@@ -4,17 +4,17 @@
 
 TID：29265
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 2.6KM goddess severa 現身上海
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[SH58b65a0bcd1ab.jpg](forum.php?mod=attachment&aid=ODQ1OTh8NDY5NWYwYjF8MTYwMzgyNzAyOHwxODIzMHwyOTI2NQ%3D%3D&nothumb=yes) *(151.84 KB, 下載次數: 4)*
+<ignore_js_op>[SH58b65a0bcd1ab.jpg](forum.php?mod=attachment&aid=ODQ1OTh8NDY5NWYwYjF8MTYwMzgyNzAyOHwxODIzMHwyOTI2NQ%3D%3D&nothumb=yes) *(151.84 KB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=ODQ1OTh8NDY5NWYwYjF8MTYwMzgyNzAyOHwxODIzMHwyOTI2NQ%3D%3D&nothumb=yes)
 

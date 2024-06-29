@@ -4,20 +4,23 @@
 
 TID：12260
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 今天又完成一幅
+
 我想我必須關閉一下練CG了![](static/image/smiley/bigface/8.gif)
+
 畢竟不習慣阿!
 
 大家請多指教:)
-PS.可憐的柯南到底是怎麼死的請大大自行想像![](static/image/smiley/bigface/7.gif)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+PS.可憐的柯南到底是怎麼死的請大大自行想像![](static/image/smiley/bigface/7.gif) 
 
 # 2
 
- <ignore_js_op>[vermouth danger.jpg](forum.php?mod=attachment&aid=Mjg0MTZ8YjIzNGQ0NzJ8MTYwMzg3NTIxMHwxODIzMHwxMjI2MA%3D%3D&nothumb=yes) *(1.73 MB, 下載次數: 31)*
+<ignore_js_op>[vermouth danger.jpg](forum.php?mod=attachment&aid=Mjg0MTZ8YjIzNGQ0NzJ8MTYwMzg3NTIxMHwxODIzMHwxMjI2MA%3D%3D&nothumb=yes) *(1.73 MB, 下載次數: 31)*
 
 [下載附件](forum.php?mod=attachment&aid=Mjg0MTZ8YjIzNGQ0NzJ8MTYwMzg3NTIxMHwxODIzMHwxMjI2MA%3D%3D&nothumb=yes)
 

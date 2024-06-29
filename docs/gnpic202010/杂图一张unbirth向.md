@@ -4,17 +4,17 @@
 
 TID：21562
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 新人。      第一次发帖
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[image.jpeg](forum.php?mod=attachment&aid=NjI4OTV8OGQzNjIzNjN8MTYwMzg2MTAyNXwxODIzMHwyMTU2Mg%3D%3D&nothumb=yes) *(87.67 KB, 下載次數: 24)*
+<ignore_js_op>[image.jpeg](forum.php?mod=attachment&aid=NjI4OTV8OGQzNjIzNjN8MTYwMzg2MTAyNXwxODIzMHwyMTU2Mg%3D%3D&nothumb=yes) *(87.67 KB, 下載次數: 24)*
 
 [下載附件](forum.php?mod=attachment&aid=NjI4OTV8OGQzNjIzNjN8MTYwMzg2MTAyNXwxODIzMHwyMTU2Mg%3D%3D&nothumb=yes)
 

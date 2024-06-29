@@ -4,7 +4,7 @@
 
 TID：14219
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -12,11 +12,11 @@ TID：14219
 
 giantess collage
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[3988e7004.jpg](forum.php?mod=attachment&aid=MzM2MjJ8ZjYyNGYxYmF8MTYwMzg2Njk2M3wxODIzMHwxNDIxOQ%3D%3D&nothumb=yes) *(184.94 KB, 下載次數: 67)*
+<ignore_js_op>[3988e7004.jpg](forum.php?mod=attachment&aid=MzM2MjJ8ZjYyNGYxYmF8MTYwMzg2Njk2M3wxODIzMHwxNDIxOQ%3D%3D&nothumb=yes) *(184.94 KB, 下載次數: 67)*
 
 [下載附件](forum.php?mod=attachment&aid=MzM2MjJ8ZjYyNGYxYmF8MTYwMzg2Njk2M3wxODIzMHwxNDIxOQ%3D%3D&nothumb=yes)
 

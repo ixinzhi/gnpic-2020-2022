@@ -4,7 +4,7 @@
 
 TID：22277
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -12,11 +12,11 @@ TID：22277
 
 学PS三天的成果
 
-轻喷哦~<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+轻喷哦~ 
 
 # 2
 
- <ignore_js_op>[NightFoot.png](forum.php?mod=attachment&aid=NjU5NjJ8ZDU1Mzk4ODR8MTYwMzg1OTA3MXwxODIzMHwyMjI3Nw%3D%3D&nothumb=yes) *(1.38 MB, 下載次數: 18)*
+<ignore_js_op>[NightFoot.png](forum.php?mod=attachment&aid=NjU5NjJ8ZDU1Mzk4ODR8MTYwMzg1OTA3MXwxODIzMHwyMjI3Nw%3D%3D&nothumb=yes) *(1.38 MB, 下載次數: 18)*
 
 [下載附件](forum.php?mod=attachment&aid=NjU5NjJ8ZDU1Mzk4ODR8MTYwMzg1OTA3MXwxODIzMHwyMjI3Nw%3D%3D&nothumb=yes)
 

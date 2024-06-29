@@ -4,16 +4,17 @@
 
 TID：17183
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 在gb看到的，也不知道有没有人翻译过。
-另本人英语水平不高，翻译可能有错误...<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+另本人英语水平不高，翻译可能有错误... 
 
 # 2
 
- <ignore_js_op>[5.jpg](forum.php?mod=attachment&aid=NDQwMzF8ZjFjMGYxNzl8MTYwMzg0ODUyN3wxODIzMHwxNzE4Mw%3D%3D&nothumb=yes) *(261.81 KB, 下載次數: 57)*
+<ignore_js_op>[5.jpg](forum.php?mod=attachment&aid=NDQwMzF8ZjFjMGYxNzl8MTYwMzg0ODUyN3wxODIzMHwxNzE4Mw%3D%3D&nothumb=yes) *(261.81 KB, 下載次數: 57)*
 
 [下載附件](forum.php?mod=attachment&aid=NDQwMzF8ZjFjMGYxNzl8MTYwMzg0ODUyN3wxODIzMHwxNzE4Mw%3D%3D&nothumb=yes)
 
@@ -43,17 +44,20 @@ TID：17183
 
 2014-7-3 11:58 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![1.jpg](img/ce5982c3500f0d27303a2a9bad32d1f9.png "1.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![1.jpg](img/ce5982c3500f0d27303a2a9bad32d1f9.png "1.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
-晕，图片顺序反了，大家凑合着看吧<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+晕，图片顺序反了，大家凑合着看吧 
 
 # 4
 
 > 神不保佑愚民 發表於 2014-7-3 17:40
+
 > 这是GS上一个叫MM的画师，pixiv：133249
+
 > 擅长LOLI GTS（一直在关注，画风很对胃口）
+
 > 经常失踪 ...
 
 请问GS是什么？

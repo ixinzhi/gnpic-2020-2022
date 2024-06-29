@@ -4,7 +4,7 @@
 
 TID：21893
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -112,7 +112,7 @@ ps：对于这个游戏还在摸索中，细节方面会逐渐提升。此次作
 
 2016-9-29 23:02 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -212,7 +212,7 @@ ps：对于这个游戏还在摸索中，细节方面会逐渐提升。此次作
 
 2016-9-29 23:06 上傳
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
@@ -312,7 +312,7 @@ ps：对于这个游戏还在摸索中，细节方面会逐渐提升。此次作
 
 2016-9-29 23:08 上傳
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
@@ -412,7 +412,7 @@ ps：对于这个游戏还在摸索中，细节方面会逐渐提升。此次作
 
 2016-9-29 23:11 上傳
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 

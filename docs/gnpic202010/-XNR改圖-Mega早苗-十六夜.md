@@ -4,11 +4,12 @@
 
 TID：12082
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 在原作基础上修改的作品：（其实这才是我想画的版本）
+
 [http://giantessnight.com/gnforum ... &extra=page%3D1](http://giantessnight.com/gnforum/viewthread.php?tid=12005&extra=page%3D1)
 
 东京市区参考了Google Earth上的3D建筑，希望能尽量贴近真实效果吧。（不过为了追求效率，画的还是很草，敬请包涵）

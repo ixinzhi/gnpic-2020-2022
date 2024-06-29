@@ -4,24 +4,29 @@
 
 TID：26544
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 第四集翻譯出來了
+
 大家可以上8muse.com搜尋
+
 上面都有漫畫可以下載
 
 這集也有吞食
+
 請自己斟酌
+
 廢話不多說，上預覽圖
+
 還請大家給的讚囉
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[16.jpg](forum.php?mod=attachment&aid=NzcwMzN8MTQ2YTk5YzV8MTYwMzg0MDkyNnwxODIzMHwyNjU0NA%3D%3D&nothumb=yes) *(392.07 KB, 下載次數: 5)*
+<ignore_js_op>[16.jpg](forum.php?mod=attachment&aid=NzcwMzN8MTQ2YTk5YzV8MTYwMzg0MDkyNnwxODIzMHwyNjU0NA%3D%3D&nothumb=yes) *(392.07 KB, 下載次數: 5)*
 
 [下載附件](forum.php?mod=attachment&aid=NzcwMzN8MTQ2YTk5YzV8MTYwMzg0MDkyNnwxODIzMHwyNjU0NA%3D%3D&nothumb=yes)
 

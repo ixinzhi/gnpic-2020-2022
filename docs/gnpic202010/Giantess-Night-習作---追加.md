@@ -4,25 +4,29 @@
 
 TID：11547
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 大家好!
 
 Sorry, long time no see!
+
 Recently, I restarted to make giantess 3D pictures.
+
 These pictures are my training works of better lighting.
+
 The theme is..., "Giantess Night".
 
 If you like them, I'll be very happy.
+
 Thank you.
 
-[ *本帖最後由 Jukes 於 2012-1-9 13:31 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 Jukes 於 2012-1-9 13:31 編輯* ] 
 
 # 2
 
- <ignore_js_op>[20120108-035320.jpg](forum.php?mod=attachment&aid=MjcwNzN8Yzc5MzZkYmJ8MTYwMzg1Mjg0MHwxODIzMHwxMTU0Nw%3D%3D&nothumb=yes) *(328.47 KB, 下載次數: 9)*
+<ignore_js_op>[20120108-035320.jpg](forum.php?mod=attachment&aid=MjcwNzN8Yzc5MzZkYmJ8MTYwMzg1Mjg0MHwxODIzMHwxMTU0Nw%3D%3D&nothumb=yes) *(328.47 KB, 下載次數: 9)*
 
 [下載附件](forum.php?mod=attachment&aid=MjcwNzN8Yzc5MzZkYmJ8MTYwMzg1Mjg0MHwxODIzMHwxMTU0Nw%3D%3D&nothumb=yes)
 
@@ -64,25 +68,29 @@ Thank you.
 
 2012-1-8 17:59 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![20120108-043227e.jpg](img/e6571429f6401bb1770ea28650d57f7b.png "20120108-043227e.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![20120108-043227e.jpg](img/e6571429f6401bb1770ea28650d57f7b.png "20120108-043227e.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 Thank you for your kind comments!
 
 >2楼 xnr先生
+
 Thank you. And here are extra pics.
 
 >4楼 cpt410先生
+
 I used DIGITOWN's "Digital GIrl RIn (デジタル彼女)", some mods and particleIllusion.
 
 >6楼 b1351302536先生
+
 Sorry, I cannot understand pin-yin.
-However, I can understand 中文 which is written in 漢字. So, please write your text in normal way.<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+However, I can understand 中文 which is written in 漢字. So, please write your text in normal way. 
 
 # 4
 
- <ignore_js_op>[20120108-190427e.jpg](forum.php?mod=attachment&aid=MjcwOTJ8NTZlMGY1ZDZ8MTYwMzg1Mjg0MHwxODIzMHwxMTU0Nw%3D%3D&nothumb=yes) *(142.02 KB, 下載次數: 0)*
+<ignore_js_op>[20120108-190427e.jpg](forum.php?mod=attachment&aid=MjcwOTJ8NTZlMGY1ZDZ8MTYwMzg1Mjg0MHwxODIzMHwxMTU0Nw%3D%3D&nothumb=yes) *(142.02 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=MjcwOTJ8NTZlMGY1ZDZ8MTYwMzg1Mjg0MHwxODIzMHwxMTU0Nw%3D%3D&nothumb=yes)
 
@@ -94,15 +102,15 @@ However, I can understand 中文 which is written in 漢字. So, please write yo
 
 2012-1-8 22:11 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![20120108-221842.jpg](img/7e83bfb8ab7925c54884af758c03922d.png "20120108-221842.jpg")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![20120108-221842.jpg](img/7e83bfb8ab7925c54884af758c03922d.png "20120108-221842.jpg")](javascript:;)</ignore_js_op>  
 
 # 5
 
-Additional pics.<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+Additional pics. 
 
 # 6
 
- <ignore_js_op>[20120109-022907.jpg](forum.php?mod=attachment&aid=MjcwOTV8YmI5OGVhMTl8MTYwMzg1Mjg0MHwxODIzMHwxMTU0Nw%3D%3D&nothumb=yes) *(335.48 KB, 下載次數: 0)*
+<ignore_js_op>[20120109-022907.jpg](forum.php?mod=attachment&aid=MjcwOTV8YmI5OGVhMTl8MTYwMzg1Mjg0MHwxODIzMHwxMTU0Nw%3D%3D&nothumb=yes) *(335.48 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=MjcwOTV8YmI5OGVhMTl8MTYwMzg1Mjg0MHwxODIzMHwxMTU0Nw%3D%3D&nothumb=yes)
 

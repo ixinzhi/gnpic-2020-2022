@@ -4,7 +4,7 @@
 
 TID：6856
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ Used poser 8 and Photoshop to do this. Took me a bit to do. Don't worry, I'll ha
 
 二手波塞尔8和Photoshop这样做。我花了一点事。别担心，我会在1位的一些新的GTS的萝莉。直到那时享受。
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[micro_plesure1.png](forum.php?mod=attachment&aid=MTc2NzN8ZjIwNDlkNDN8MTYwMzg4MDE2OHwxODIzMHw2ODU2&nothumb=yes) *(443.2 KB, 下載次數: 9)*
+<ignore_js_op>[micro_plesure1.png](forum.php?mod=attachment&aid=MTc2NzN8ZjIwNDlkNDN8MTYwMzg4MDE2OHwxODIzMHw2ODU2&nothumb=yes) *(443.2 KB, 下載次數: 9)*
 
 [下載附件](forum.php?mod=attachment&aid=MTc2NzN8ZjIwNDlkNDN8MTYwMzg4MDE2OHwxODIzMHw2ODU2&nothumb=yes)
 

@@ -4,17 +4,19 @@
 
 TID：7132
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 今天有點無聊就研究了一下mikumikudance
+
 感覺還蠻好上手(相對poser![](static/image/smiley/bigface/20.gif) )
-不過做出來的圖就是有點小![](static/image/smiley/bigface/37.gif)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+不過做出來的圖就是有點小![](static/image/smiley/bigface/37.gif) 
 
 # 2
 
- <ignore_js_op>[001.bmp](forum.php?mod=attachment&aid=MTg0ODF8ODhmZGExOTl8MTYwMzg4MDQ5MnwxODIzMHw3MTMy&nothumb=yes) *(576.05 KB, 下載次數: 73)*
+<ignore_js_op>[001.bmp](forum.php?mod=attachment&aid=MTg0ODF8ODhmZGExOTl8MTYwMzg4MDQ5MnwxODIzMHw3MTMy&nothumb=yes) *(576.05 KB, 下載次數: 73)*
 
 [下載附件](forum.php?mod=attachment&aid=MTg0ODF8ODhmZGExOTl8MTYwMzg4MDQ5MnwxODIzMHw3MTMy&nothumb=yes)
 

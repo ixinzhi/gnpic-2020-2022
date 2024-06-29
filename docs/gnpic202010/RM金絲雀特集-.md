@@ -4,16 +4,17 @@
 
 TID：73
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 這次是以金絲雀為主的連發喔! 另外也給版主說聲抱歉,我不會畫圖啦,只會剪剪貼貼,該算是合成吧!的確不是我自己畫
-另外大家有想要合成的人物,也可以請我試試看!只限2D圖喔!我對三次元的女人沒興趣![](static/image/smiley/default/lol.gif)![](static/image/smiley/default/lol.gif)![](static/image/smiley/default/lol.gif):lol:lol:lol:lol <title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+另外大家有想要合成的人物,也可以請我試試看!只限2D圖喔!我對三次元的女人沒興趣![](static/image/smiley/default/lol.gif)![](static/image/smiley/default/lol.gif)![](static/image/smiley/default/lol.gif):lol:lol:lol:lol  
 
 # 2
 
- <ignore_js_op>[bwc51.jpg](forum.php?mod=attachment&aid=MTUxfDE3YmMxNWZkfDE2MDM4ODM4MDZ8MTgyMzB8NzM%3D&nothumb=yes) *(256.29 KB, 下載次數: 687)*
+<ignore_js_op>[bwc51.jpg](forum.php?mod=attachment&aid=MTUxfDE3YmMxNWZkfDE2MDM4ODM4MDZ8MTgyMzB8NzM%3D&nothumb=yes) *(256.29 KB, 下載次數: 687)*
 
 [下載附件](forum.php?mod=attachment&aid=MTUxfDE3YmMxNWZkfDE2MDM4ODM4MDZ8MTgyMzB8NzM%3D&nothumb=yes)
 

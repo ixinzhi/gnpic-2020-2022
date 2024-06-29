@@ -4,7 +4,7 @@
 
 TID：20654
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -24,13 +24,16 @@ TID：20654
 
 2016-2-22 21:35 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > [zsd 發表於 2016-2-22 23:39](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=285217&ptid=20654)
+
 > 玩什么地球，绘里香快去压倒副部长啦！
+
 > 
+
 > 自己建模做MMD，自己动手丰衣足食。这是贯彻全面建设小康社会的令 ...
 
 副部長才是攻！你這歪門邪道！！！</ignore_js_op></ignore_js_op>

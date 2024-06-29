@@ -4,7 +4,7 @@
 
 TID：10555
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -24,11 +24,11 @@ TID：10555
 
 2011-7-11 20:53 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
-双开游戏截的图。不是做的<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+双开游戏截的图。不是做的 
 
 # 3
 
@@ -40,7 +40,7 @@ TID：10555
 
 2011-7-12 18:12 上傳
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 

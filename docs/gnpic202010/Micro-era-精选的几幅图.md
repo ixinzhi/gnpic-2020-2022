@@ -4,13 +4,16 @@
 
 TID：8508
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 先发几个微纪元（Micro-era）中自己感觉渲染的比较好的镜头吧...
+
 让没去过City看过的同好也看看..呵呵
+
 其中可以看到效果的变化...学习的进步，呵呵![](static/image/smiley/bigface/30.gif)
+
 等GN搬家安顿下来我就全部搬过来.....
 
 <ignore_js_op>![](img/35698f3ee613c7d2407e8e973f613abe.png)
@@ -101,7 +104,7 @@ TID：8508
 
 2010-11-11 00:14 上傳
 
-[ *本帖最後由 linkson 於 2010-11-11 00:21 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 linkson 於 2010-11-11 00:21 編輯* ] 
 
 # 2
 

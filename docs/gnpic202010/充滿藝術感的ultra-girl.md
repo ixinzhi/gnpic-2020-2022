@@ -4,7 +4,7 @@
 
 TID：16693
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -58,7 +58,7 @@ TID：16693
 
 求獎勵點呀~快100嚕!
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

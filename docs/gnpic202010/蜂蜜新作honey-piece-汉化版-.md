@@ -4,18 +4,19 @@
 
 TID：20253
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 感谢LXL旺 飞鸟汉化！
 
 宣传一波群！ 宅基腐的小伙伴们！ qq群386692928
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[QQ图片20151208232807.jpg](forum.php?mod=attachment&aid=NTc3NjZ8YTlmM2QzODV8MTYwMzg1NDM4N3wxODIzMHwyMDI1Mw%3D%3D&nothumb=yes) *(179.27 KB, 下載次數: 350)*
+<ignore_js_op>[QQ图片20151208232807.jpg](forum.php?mod=attachment&aid=NTc3NjZ8YTlmM2QzODV8MTYwMzg1NDM4N3wxODIzMHwyMDI1Mw%3D%3D&nothumb=yes) *(179.27 KB, 下載次數: 350)*
 
 [下載附件](forum.php?mod=attachment&aid=NTc3NjZ8YTlmM2QzODV8MTYwMzg1NDM4N3wxODIzMHwyMDI1Mw%3D%3D&nothumb=yes)
 

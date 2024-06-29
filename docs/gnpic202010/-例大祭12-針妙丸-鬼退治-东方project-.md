@@ -4,21 +4,25 @@
 
 TID：18998
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 呜啊啊123 於 2015-5-19 00:19 編輯*
 
 就是针喵丸x西瓜的本子啦
+
 其实sw部分是在前几段，后面针喵用万宝槌变大了然后是以正常体型h
+
 大致来说和原先的那个树精的本子有点类似吧（忘记名字了orz）
+
 ps：话说是标题是鬼退治但是针喵丸全程受呢233
-再ps：因为我这边不知道为什么网络的问题。。5和15没有导进去。。望见谅。。脑补一下就行了吧<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+再ps：因为我这边不知道为什么网络的问题。。5和15没有导进去。。望见谅。。脑补一下就行了吧 
 
 # 2
 
- <ignore_js_op>[00.jpg](forum.php?mod=attachment&aid=NTE5NDJ8YTJiNGJhMWF8MTYwMzg1ODAwNXwxODIzMHwxODk5OA%3D%3D&nothumb=yes) *(288.1 KB, 下載次數: 10)*
+<ignore_js_op>[00.jpg](forum.php?mod=attachment&aid=NTE5NDJ8YTJiNGJhMWF8MTYwMzg1ODAwNXwxODIzMHwxODk5OA%3D%3D&nothumb=yes) *(288.1 KB, 下載次數: 10)*
 
 [下載附件](forum.php?mod=attachment&aid=NTE5NDJ8YTJiNGJhMWF8MTYwMzg1ODAwNXwxODIzMHwxODk5OA%3D%3D&nothumb=yes)
 

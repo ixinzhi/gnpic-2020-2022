@@ -4,7 +4,7 @@
 
 TID：13410
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -13,20 +13,26 @@ TID：13410
 【注意】巨大男性演出。不想看的人，請關上。
 
 大家好！
+
 最近，我開展著巨大 Elf Princess (エルフ姫) 的作品於 Megame。
+
 在這裡上載，是 another 版本。
+
 是這裡用限定，先行上載。
+
 Megame的是1000倍，不過，這是400倍的做愛。
 
 I'm uploading "Elf Princess" pictures to Megame in these days.
+
 Here is ANOTHER VERSION of them, limited and early uploading.
+
 Megame's version is 1000x size, but here is 400x size "make love".
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[20120921-223306.jpg](forum.php?mod=attachment&aid=MzEyNTd8ODQ5ZjEyZjJ8MTYwMzg3NDUwMnwxODIzMHwxMzQxMA%3D%3D&nothumb=yes) *(504.96 KB, 下載次數: 42)*
+<ignore_js_op>[20120921-223306.jpg](forum.php?mod=attachment&aid=MzEyNTd8ODQ5ZjEyZjJ8MTYwMzg3NDUwMnwxODIzMHwxMzQxMA%3D%3D&nothumb=yes) *(504.96 KB, 下載次數: 42)*
 
 [下載附件](forum.php?mod=attachment&aid=MzEyNTd8ODQ5ZjEyZjJ8MTYwMzg3NDUwMnwxODIzMHwxMzQxMA%3D%3D&nothumb=yes)
 

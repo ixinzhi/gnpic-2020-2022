@@ -4,16 +4,17 @@
 
 TID：23829
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 新人入手請大家多多指教![](static/image/smiley/girl/07.png)( 又好像不是呢..... 打脸)
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[1.png](forum.php?mod=attachment&aid=Njk0Mzd8NzFkYmRiODF8MTYwMzg1NDI0MnwxODIzMHwyMzgyOQ%3D%3D&nothumb=yes) *(601.4 KB, 下載次數: 0)*
+<ignore_js_op>[1.png](forum.php?mod=attachment&aid=Njk0Mzd8NzFkYmRiODF8MTYwMzg1NDI0MnwxODIzMHwyMzgyOQ%3D%3D&nothumb=yes) *(601.4 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=Njk0Mzd8NzFkYmRiODF8MTYwMzg1NDI0MnwxODIzMHwyMzgyOQ%3D%3D&nothumb=yes)
 

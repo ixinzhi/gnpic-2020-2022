@@ -4,16 +4,17 @@
 
 TID：17681
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 3张有关，1张无关。
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[33134203_1397445539437_1920x1200.jpg](forum.php?mod=attachment&aid=NDY0NzV8M2FhZmU2MTJ8MTYwMzg2MTIyM3wxODIzMHwxNzY4MQ%3D%3D&nothumb=yes) *(1.18 MB, 下載次數: 17)*
+<ignore_js_op>[33134203_1397445539437_1920x1200.jpg](forum.php?mod=attachment&aid=NDY0NzV8M2FhZmU2MTJ8MTYwMzg2MTIyM3wxODIzMHwxNzY4MQ%3D%3D&nothumb=yes) *(1.18 MB, 下載次數: 17)*
 
 [下載附件](forum.php?mod=attachment&aid=NDY0NzV8M2FhZmU2MTJ8MTYwMzg2MTIyM3wxODIzMHwxNzY4MQ%3D%3D&nothumb=yes)
 

@@ -4,16 +4,22 @@
 
 TID：12329
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 我覺得DI的這篇是不是還有漏掉很多圖啊
+
 我找這張圖找很久了
+
 因為我自己很喜歡縮小以後入襪或入鞋內的劇情
+
 所以我找到這張圖的時候很興奮
+
 我覺得小人變的極小以後被放入在女巨人的鞋子內跟女巨人的腳和腳趾搏鬥
+
 對我來說是大概是GTS最興奮的點了吧
+
 話說太多 先把圖附上
 
 <ignore_js_op>![](img/e2f2a5dea0321667b63c8739ee94ed60.png)

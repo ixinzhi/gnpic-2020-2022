@@ -4,7 +4,7 @@
 
 TID：485
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -48,21 +48,21 @@ TID：485
 
 2007-8-20 21:18 上傳
 
-有些阴影还没有处理好,我打算想做个故事,不过没什么灵感,大家给点建议吧.(不会插入对话,郁闷~~):P<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+有些阴影还没有处理好,我打算想做个故事,不过没什么灵感,大家给点建议吧.(不会插入对话,郁闷~~):P 
 
 # 2
 
-很高兴但大喜欢!![](static/image/smiley/default/biggrin.gif) 我会好好想想这个故事的了,我比较喜欢穿肉色丝袜的脚,看起来比较漂亮而且温柔一些,POSER可以创作的空间挺多的,随便问问,但大喜欢什么GTS情节,缩小还是变大的?<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+很高兴但大喜欢!![](static/image/smiley/default/biggrin.gif) 我会好好想想这个故事的了,我比较喜欢穿肉色丝袜的脚,看起来比较漂亮而且温柔一些,POSER可以创作的空间挺多的,随便问问,但大喜欢什么GTS情节,缩小还是变大的? 
 
 # 3
 
-变大其实也可以,就是要找些比较逼真的城市素材,又不会需要花费太多机器性能导致死机的那种,POSER比较麻烦的是要做出建筑物被弄坏的感觉比较麻烦.<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+变大其实也可以,就是要找些比较逼真的城市素材,又不会需要花费太多机器性能导致死机的那种,POSER比较麻烦的是要做出建筑物被弄坏的感觉比较麻烦. 
 
 # 4
 
 是吖,我也觉得这个MM不好看,不过亚洲的MM,好看的模型比较少,那个AIKO的脚太假了,所以没用上.(你求的鞋不错,哈哈,上面好看的鞋子太少了)![](static/image/smiley/default/lol.gif)
 
-[ *本帖最後由 chaos_ye 於 2007-8-22 18:32 編輯* ]<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 chaos_ye 於 2007-8-22 18:32 編輯* ] 
 
 # 5
 

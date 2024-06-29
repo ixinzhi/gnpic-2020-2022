@@ -4,17 +4,17 @@
 
 TID：22246
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 hsxz 於 2016-12-4 20:14 編輯*
 
-这些是关于boss挑战勇者的图，嗯，貌似没用什么反了的地方<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+这些是关于boss挑战勇者的图，嗯，貌似没用什么反了的地方 
 
 # 2
 
- <ignore_js_op>[a8.jpg](forum.php?mod=attachment&aid=NjU4NDZ8MzQwY2E1ODB8MTYwMzg1ODU5MXwxODIzMHwyMjI0Ng%3D%3D&nothumb=yes) *(210.37 KB, 下載次數: 3)*
+<ignore_js_op>[a8.jpg](forum.php?mod=attachment&aid=NjU4NDZ8MzQwY2E1ODB8MTYwMzg1ODU5MXwxODIzMHwyMjI0Ng%3D%3D&nothumb=yes) *(210.37 KB, 下載次數: 3)*
 
 [下載附件](forum.php?mod=attachment&aid=NjU4NDZ8MzQwY2E1ODB8MTYwMzg1ODU5MXwxODIzMHwyMjI0Ng%3D%3D&nothumb=yes)
 
@@ -62,30 +62,33 @@ TID：22246
 
 2016-12-4 03:33 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![a1.jpg](img/fc9584e0abd31e2b77b9b04e375ca644.png "a1.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![a1.jpg](img/fc9584e0abd31e2b77b9b04e375ca644.png "a1.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
-上面的按着顺序看，还有貌似因为权限之类的问题，我今天不能再发图了，还有近10张的说，发不出去啊orz<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+上面的按着顺序看，还有貌似因为权限之类的问题，我今天不能再发图了，还有近10张的说，发不出去啊orz 
 
 # 4
 
 *本帖最後由 hsxz 於 2016-12-4 20:14 編輯*
 
 好吧，我上传百度云
+
 链接：[http://pan.baidu.com/s/1pLsAKZp](http://pan.baidu.com/s/1pLsAKZp) 密码：2mtw
-全在里面<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+全在里面 
 
 # 5
 
 *本帖最後由 hsxz 於 2016-12-4 20:19 編輯*
 
 修改完成**由于原图太占存储，我发的是有损压缩的图，如果有一张特别喜欢，告诉我后我会发一遍无损bmp格式图**
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 6
 
- <ignore_js_op>[bb3.jpg](forum.php?mod=attachment&aid=NjU4NzF8NWJlYTEwODh8MTYwMzg1ODU5MXwxODIzMHwyMjI0Ng%3D%3D&nothumb=yes) *(283.18 KB, 下載次數: 0)*
+<ignore_js_op>[bb3.jpg](forum.php?mod=attachment&aid=NjU4NzF8NWJlYTEwODh8MTYwMzg1ODU5MXwxODIzMHwyMjI0Ng%3D%3D&nothumb=yes) *(283.18 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=NjU4NzF8NWJlYTEwODh8MTYwMzg1ODU5MXwxODIzMHwyMjI0Ng%3D%3D&nothumb=yes)
 
@@ -145,11 +148,12 @@ TID：22246
 
 2016-12-4 20:16 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![b3.jpg](img/ecdabb6650257610b071376a09a9b951.png "b3.jpg")](javascript:;)</ignore_js_op> <title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![b3.jpg](img/ecdabb6650257610b071376a09a9b951.png "b3.jpg")](javascript:;)</ignore_js_op>  
 
 # 7
 
 > [源青之绅 發表於 2016-12-4 12:59](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=316505&ptid=22246)
+
 > 哇，为什么埼玉老师在画面里，这很血腥的
 
 上传的时候顺序反了，应该第一张其琦玉的。。。现在变成最后一张了。。。感觉怪怪的。。。好血腥。。。这不是我想要的结果。。。

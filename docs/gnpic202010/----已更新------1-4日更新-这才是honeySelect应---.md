@@ -4,22 +4,27 @@
 
 TID：24222
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 hsxz 於 2018-1-4 21:52 編輯*
 
 基本操作
+
 招这个文件大小来看
+
 一天看来只能传一张
+
 不过一共也就5张，**已上传至p站**
+
 想看更多去我p站主页
-[https://www.pixiv.net/member.php?id=20075942](https://www.pixiv.net/member.php?id=20075942)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+[https://www.pixiv.net/member.php?id=20075942](https://www.pixiv.net/member.php?id=20075942) 
 
 # 2
 
- <ignore_js_op>[20180101180537106.png](forum.php?mod=attachment&aid=NzAxODZ8ZjZiNDJmMWV8MTYwMzgzNjA0N3wxODIzMHwyNDIyMg%3D%3D&nothumb=yes) *(2.45 MB, 下載次數: 44)*
+<ignore_js_op>[20180101180537106.png](forum.php?mod=attachment&aid=NzAxODZ8ZjZiNDJmMWV8MTYwMzgzNjA0N3wxODIzMHwyNDIyMg%3D%3D&nothumb=yes) *(2.45 MB, 下載次數: 44)*
 
 [下載附件](forum.php?mod=attachment&aid=NzAxODZ8ZjZiNDJmMWV8MTYwMzgzNjA0N3wxODIzMHwyNDIyMg%3D%3D&nothumb=yes)
 
@@ -49,16 +54,18 @@ TID：24222
 
 2018-1-1 19:20 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![20180101175002373.png](img/633148cf61aa650074b05ab85f21d656.png "20180101175002373.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![20180101175002373.png](img/633148cf61aa650074b05ab85f21d656.png "20180101175002373.png")](javascript:;)</ignore_js_op>  
 
 # 3
 
 虽然我想说画质。。。但是截图截下来明显画质受损了
-而bmp又不可能上传<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+而bmp又不可能上传 
 
 # 4
 
 > [大撸若愚 發表於 2018-1-1 23:12](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=353693&ptid=24222)
+
 > 我外行，但是感觉光效什么的太油腻了
 
 正好传了两张效果最差的，目前还有一张传不上来

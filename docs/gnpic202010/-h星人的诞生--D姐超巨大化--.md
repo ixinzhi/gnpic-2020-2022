@@ -4,19 +4,21 @@
 
 TID：29587
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 焦冥小虫xxx 於 2020-10-3 04:30 編輯*
 
 嘛，画了一周，算是完成了，，吧。头发那一块我个人觉得很不好，剩下的也就那样了，本来想画更多的特写镜头的，但真的有点肝不动了，，大家看的乐呵就行。
+
 对了，右下角的证件照上写着：姓名：维拉（d姐本名）   工作部门：xx生物制药     工号：1731177
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[lsp2(1).jpg](forum.php?mod=attachment&aid=ODU0NDZ8OWE4YjI0ZDZ8MTYwMzgxNDY4N3wxODIzMHwyOTU4Nw%3D%3D&nothumb=yes) *(329.34 KB, 下載次數: 50)*
+<ignore_js_op>[lsp2(1).jpg](forum.php?mod=attachment&aid=ODU0NDZ8OWE4YjI0ZDZ8MTYwMzgxNDY4N3wxODIzMHwyOTU4Nw%3D%3D&nothumb=yes) *(329.34 KB, 下載次數: 50)*
 
 [下載附件](forum.php?mod=attachment&aid=ODU0NDZ8OWE4YjI0ZDZ8MTYwMzgxNDY4N3wxODIzMHwyOTU4Nw%3D%3D&nothumb=yes)
 
@@ -28,16 +30,17 @@ TID：29587
 
 2020-10-2 22:58 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![lsp22(1).jpg](img/89b98ca2b75e641b0bd512c53a35e0d6.png "lsp22(1).jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![lsp22(1).jpg](img/89b98ca2b75e641b0bd512c53a35e0d6.png "lsp22(1).jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 附上过程图和灵感来源图～
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 4
 
- <ignore_js_op>[TJO$)M@)DJ}(L[KGA(QS_JC.png](forum.php?mod=attachment&aid=ODU0NTJ8MzZkZjZjYjl8MTYwMzgxNDY4N3wxODIzMHwyOTU4Nw%3D%3D&nothumb=yes) *(96.43 KB, 下載次數: 4)*
+<ignore_js_op>[TJO$)M@)DJ}(L[KGA(QS_JC.png](forum.php?mod=attachment&aid=ODU0NTJ8MzZkZjZjYjl8MTYwMzgxNDY4N3wxODIzMHwyOTU4Nw%3D%3D&nothumb=yes) *(96.43 KB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=ODU0NTJ8MzZkZjZjYjl8MTYwMzgxNDY4N3wxODIzMHwyOTU4Nw%3D%3D&nothumb=yes)
 
@@ -73,19 +76,21 @@ TID：29587
 
 2020-10-2 23:06 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![U21HA7VVQK2HMJL%6P$VNKT.png](img/3cbf94eb2cb12bb7114871b8f9358986.png "U21HA7VVQK2HMJL%6P$VNKT.png")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![U21HA7VVQK2HMJL%6P$VNKT.png](img/3cbf94eb2cb12bb7114871b8f9358986.png "U21HA7VVQK2HMJL%6P$VNKT.png")](javascript:;)</ignore_js_op>  
 
 # 5
 
 > [焦冥小虫xxx 發表於 2020-10-2 23:09](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=448897&ptid=29587)
+
 > 附上过程图和灵感来源图～
 
 这次的灵感来源～参考了大佬的上色塑造和姿势（顺便把胸画大了～）
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 6
 
- <ignore_js_op>[lsp - 副本(1).jpg](forum.php?mod=attachment&aid=ODU0NTN8NjgwZjMzZjl8MTYwMzgxNDY4N3wxODIzMHwyOTU4Nw%3D%3D&nothumb=yes) *(251.28 KB, 下載次數: 5)*
+<ignore_js_op>[lsp - 副本(1).jpg](forum.php?mod=attachment&aid=ODU0NTN8NjgwZjMzZjl8MTYwMzgxNDY4N3wxODIzMHwyOTU4Nw%3D%3D&nothumb=yes) *(251.28 KB, 下載次數: 5)*
 
 [下載附件](forum.php?mod=attachment&aid=ODU0NTN8NjgwZjMzZjl8MTYwMzgxNDY4N3wxODIzMHwyOTU4Nw%3D%3D&nothumb=yes)
 

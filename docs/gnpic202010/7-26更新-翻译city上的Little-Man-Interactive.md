@@ -4,13 +4,14 @@
 
 TID：17195
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 wjdavid 於 2014-7-26 11:32 編輯*
 
 city上的文章 看着挺有意思的，楼主根据大家的回帖进行创作。
+
 小学英语，大家凑合看吧，发现错误请赶紧指正。 <ignore_js_op>![](img/7ce414c8d3b14ddf2897b1ff809705c4.png)
 
 **1.png** *(295.44 KB, 下載次數: 13)*
@@ -139,25 +140,27 @@ city上的文章 看着挺有意思的，楼主根据大家的回帖进行创作
 
 2014-7-4 19:42 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[I3.jpg](forum.php?mod=attachment&aid=NDQwNDR8YmVlN2I2ZWV8MTYwMzg2ODE0NnwxODIzMHwxNzE5NQ%3D%3D&nothumb=yes) *(371.44 KB, 下載次數: 3)*
+<ignore_js_op>[I3.jpg](forum.php?mod=attachment&aid=NDQwNDR8YmVlN2I2ZWV8MTYwMzg2ODE0NnwxODIzMHwxNzE5NQ%3D%3D&nothumb=yes) *(371.44 KB, 下載次數: 3)*
 
 [下載附件](forum.php?mod=attachment&aid=NDQwNDR8YmVlN2I2ZWV8MTYwMzg2ODE0NnwxODIzMHwxNzE5NQ%3D%3D&nothumb=yes)
 
 2014-7-4 19:40 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![I3.jpg](img/383cd18bfb9cfee8c06262af7f732c06.png "I3.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![I3.jpg](img/383cd18bfb9cfee8c06262af7f732c06.png "I3.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > [shendanxiaogui 發表於 2014-7-4 20:21](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=226203&ptid=17195)
+
 > (´・ω・｀)原帖是互动贴的么...好像很厉害的样子...连渲染在内做张图好好多时间呢...不对，一天一张也有 ...
 
 原帖就是  里面提到的闪电领主什么的 都是论坛里的ID
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 4
 
@@ -321,7 +324,7 @@ city上的文章 看着挺有意思的，楼主根据大家的回帖进行创作
 
 2014-7-19 11:11 上傳
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 
@@ -397,13 +400,16 @@ city上的文章 看着挺有意思的，楼主根据大家的回帖进行创作
 
 2014-7-26 11:29 上傳
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
 > [咯咯 發表於 2014-7-6 22:59](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=226393&ptid=17195)
+
 > 互動真有意思，起碼看上去也不覺得對話太過生硬
+
 > 只是有趣的感覺，真的
+
 > 而且不是那種粗糙的婊臉而是精緻的婊 ...
 
 PS的不会。win7的画图很强大。求PS教程。</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

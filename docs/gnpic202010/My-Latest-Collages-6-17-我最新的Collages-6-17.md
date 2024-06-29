@@ -4,7 +4,7 @@
 
 TID：3054
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ Here's some of the newest Collages I've been doing. Enjoy!
 
 下面是一些最新的拼贴画我一直在做的事情。享受！
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[gts-again-52.jpg](forum.php?mod=attachment&aid=OTE4M3wwN2M0ZTZhMHwxNjAzODgyNDU1fDE4MjMwfDMwNTQ%3D&nothumb=yes) *(196.19 KB, 下載次數: 10)*
+<ignore_js_op>[gts-again-52.jpg](forum.php?mod=attachment&aid=OTE4M3wwN2M0ZTZhMHwxNjAzODgyNDU1fDE4MjMwfDMwNTQ%3D&nothumb=yes) *(196.19 KB, 下載次數: 10)*
 
 [下載附件](forum.php?mod=attachment&aid=OTE4M3wwN2M0ZTZhMHwxNjAzODgyNDU1fDE4MjMwfDMwNTQ%3D&nothumb=yes)
 

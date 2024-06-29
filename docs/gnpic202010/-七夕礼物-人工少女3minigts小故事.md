@@ -4,24 +4,33 @@
 
 TID：15021
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 ![](static/image/smiley/bigface/22.gif)七夕节没有女朋友，想起来自己曾经尝试着做过一小段这个故事，就又做了几个。
+
 ![](static/image/smiley/bigface/8.gif)做得很随意，请大家伴着随意的心态来看……
+
 ![](static/image/smiley/bigface/37.gif)不会mmd，不会画画，可能就只能以这种方式作图了吧
+
 ![](static/image/smiley/bigface/22.gif)之前还翻译过几个漫画……
+
 ![](static/image/smiley/bigface/26.gif)人工少女3的制作还是很适合我们gtser的，模型质量也高，修改液方便，缺点就是不能摆拍……必须要抓抓怕女孩子的表情，剩下的就只能通过加文字和注释的方式来补偿了。我尽量希望用简单的文字来使这个故事生动一些，希望大家喜欢![](static/image/smiley/bigface/22.gif)
+
 ![](static/image/smiley/bigface/24.gif)女主目前还不是很高，以后也许会继续长高的，嘿嘿
+
 ![](static/image/smiley/bigface/4.gif)压缩包一25张图，压缩包二60张图，大家看看就好，请轻拍……![](static/image/smiley/bigface/57.gif)
+
 下载请在百度网盘 [http://pan.baidu.com/share/link? ... 5&uk=3507848600](http://pan.baidu.com/share/link?shareid=3957566835&uk=3507848600)
+
 [http://pan.baidu.com/share/link? ... 2&uk=3507848600](http://pan.baidu.com/share/link?shareid=3959808162&uk=3507848600)
-预览图：<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+预览图： 
 
 # 2
 
- <ignore_js_op>[16.jpg](forum.php?mod=attachment&aid=MzU5ODl8ZmI1MjczZWR8MTYwMzg0MzQxNHwxODIzMHwxNTAyMQ%3D%3D&nothumb=yes) *(297.48 KB, 下載次數: 57)*
+<ignore_js_op>[16.jpg](forum.php?mod=attachment&aid=MzU5ODl8ZmI1MjczZWR8MTYwMzg0MzQxNHwxODIzMHwxNTAyMQ%3D%3D&nothumb=yes) *(297.48 KB, 下載次數: 57)*
 
 [下載附件](forum.php?mod=attachment&aid=MzU5ODl8ZmI1MjczZWR8MTYwMzg0MzQxNHwxODIzMHwxNTAyMQ%3D%3D&nothumb=yes)
 

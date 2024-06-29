@@ -4,7 +4,7 @@
 
 TID：15779
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 

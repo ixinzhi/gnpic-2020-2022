@@ -4,19 +4,21 @@
 
 TID：1780
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 只会调下比例　，　没什么创意，　献丑了 ![](static/image/smiley/bigface/12.gif)2" />
+
 （制作方法请见本站 : [http://www.giantess-night.com/gt ... 1779&extra=page%3D1](http://www.giantess-night.com/gts_talk/viewthread.php?tid=1779&extra=page%3D1))
+
 希望能抱砖引玉
 
-[ *本帖最後由 nfsaoc 於 2008-11-6 23:57 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 nfsaoc 於 2008-11-6 23:57 編輯* ] 
 
 # 2
 
- <ignore_js_op>[1.jpg](forum.php?mod=attachment&aid=NTc3OXwwNmM5M2VjYXwxNjAzODgyMTYzfDE4MjMwfDE3ODA%3D&nothumb=yes) *(59.49 KB, 下載次數: 11)*
+<ignore_js_op>[1.jpg](forum.php?mod=attachment&aid=NTc3OXwwNmM5M2VjYXwxNjAzODgyMTYzfDE4MjMwfDE3ODA%3D&nothumb=yes) *(59.49 KB, 下載次數: 11)*
 
 [下載附件](forum.php?mod=attachment&aid=NTc3OXwwNmM5M2VjYXwxNjAzODgyMTYzfDE4MjMwfDE3ODA%3D&nothumb=yes)
 

@@ -4,20 +4,21 @@
 
 TID：21035
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 不断地磨练做出了更赞的图，还有红蓝3d的，但介于有眼镜的不多，就暂时不发了
-楼下开更<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+楼下开更 
 
 # 2
 
-其实我是百度贴吧发不了才来这的，先发第一批做的，那时技术还不够<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+其实我是百度贴吧发不了才来这的，先发第一批做的，那时技术还不够 
 
 # 3
 
- <ignore_js_op>[QQ图片20160505173813.jpg](forum.php?mod=attachment&aid=NjEwNTB8MGZiYjA0NzN8MTYwMzg1Njk3MXwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(139.94 KB, 下載次數: 134)*
+<ignore_js_op>[QQ图片20160505173813.jpg](forum.php?mod=attachment&aid=NjEwNTB8MGZiYjA0NzN8MTYwMzg1Njk3MXwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(139.94 KB, 下載次數: 134)*
 
 [下載附件](forum.php?mod=attachment&aid=NjEwNTB8MGZiYjA0NzN8MTYwMzg1Njk3MXwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
@@ -137,27 +138,29 @@ TID：21035
 
 2016-5-5 18:05 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![QQ图片20160505175641.jpg](img/f23a8428c6653f1fbdc8de6df18d3787.png "QQ图片20160505175641.jpg")](javascript:;)</ignore_js_op> <title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![QQ图片20160505175641.jpg](img/f23a8428c6653f1fbdc8de6df18d3787.png "QQ图片20160505175641.jpg")](javascript:;)</ignore_js_op>  
 
 # 4
 
-没人啊![](static/image/smiley/bigface/19.gif)不更了！！！！！！！！！！！！！！！！！！！！！！！！！！！！<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+没人啊![](static/image/smiley/bigface/19.gif)不更了！！！！！！！！！！！！！！！！！！！！！！！！！！！！ 
 
 # 5
 
 > [4945 發表於 2016-5-5 18:20](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=292804&ptid=21035)
+
 > 都在上班啊 才折蹬回家 ......唉
 
 一下子更新那么多也累，前面只是说说的，但让我休息一会![](static/image/smiley/bigface/11.gif)
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 6
 
-第二批，已经实现景深了，先放这么点<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+第二批，已经实现景深了，先放这么点 
 
 # 7
 
- <ignore_js_op>[QQ图片20160506145437.jpg](forum.php?mod=attachment&aid=NjEwNzF8MDkyOGFlNTF8MTYwMzg1Njk3MXwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(108.19 KB, 下載次數: 10)*
+<ignore_js_op>[QQ图片20160506145437.jpg](forum.php?mod=attachment&aid=NjEwNzF8MDkyOGFlNTF8MTYwMzg1Njk3MXwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(108.19 KB, 下載次數: 10)*
 
 [下載附件](forum.php?mod=attachment&aid=NjEwNzF8MDkyOGFlNTF8MTYwMzg1Njk3MXwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
@@ -199,55 +202,63 @@ TID：21035
 
 2016-5-6 15:04 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![QQ图片20160506145831.jpg](img/71a4ad071930e198bf453fddfc0c2ffa.png "QQ图片20160506145831.jpg")](javascript:;)</ignore_js_op> <title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![QQ图片20160506145831.jpg](img/71a4ad071930e198bf453fddfc0c2ffa.png "QQ图片20160506145831.jpg")](javascript:;)</ignore_js_op>  
 
 # 8
 
-最后一张重复了，抱歉<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+最后一张重复了，抱歉 
 
 # 9
 
-明天再更（字数！！！！！！！！！！！！！！！！！！！！！！）<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+明天再更（字数！！！！！！！！！！！！！！！！！！！！！！） 
 
 # 10
 
 > [wrm901231 發表於 2016-5-6 19:04](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=292885&ptid=21035)
+
 > 这是游戏还是MMD？
 
 是游。戏。。。。。。。。。。。。。。。。。。。。。。。。。。。。。。。。。。。。。。
-<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 11
 
 > [mengliul 發表於 2016-5-7 08:53](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=292947&ptid=21035)
+
 > 能给个教程（资源）吗
 
 这已经不是技术上的问题了，怎么摆才好我也只是会弄，并教不来![](static/image/smiley/bigface/50.gif)嘛，sbpr的画质还是值得坑定的，不像真的是画风问题，个人还是更喜欢这种画风的说（不想看到皮肤纹理）
-<title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 12
 
 > [mengliul 發表於 2016-5-7 08:53](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=292947&ptid=21035)
+
 > 能给个教程（资源）吗
 
 不过技术上的问题我之后会开新帖讲的（貌似已经有人讲过了虽然）
-<title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 13
 
 > [502胶 發表於 2016-5-7 11:38](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=292958&ptid=21035)
+
 > 楼主你这个是怎么调大小
 
 改配置文件+摄影模式缩放
-<title>14</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 14
 
-又弄了四张，发上来了<title>15</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+又弄了四张，发上来了 
 
 # 15
 
- <ignore_js_op>[QQ图片20160506145626.jpg](forum.php?mod=attachment&aid=NjExMTV8MzZjNDQyOWV8MTYwMzg1NzA0N3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(113.23 KB, 下載次數: 6)*
+<ignore_js_op>[QQ图片20160506145626.jpg](forum.php?mod=attachment&aid=NjExMTV8MzZjNDQyOWV8MTYwMzg1NzA0N3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(113.23 KB, 下載次數: 6)*
 
 [下載附件](forum.php?mod=attachment&aid=NjExMTV8MzZjNDQyOWV8MTYwMzg1NzA0N3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
@@ -271,79 +282,95 @@ TID：21035
 
 2016-5-7 23:11 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![QQ图片20160506145459.jpg](img/901ab0c448110ea2a2be9bbf6be4c303.png "QQ图片20160506145459.jpg")](javascript:;)</ignore_js_op> <title>16</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![QQ图片20160506145459.jpg](img/901ab0c448110ea2a2be9bbf6be4c303.png "QQ图片20160506145459.jpg")](javascript:;)</ignore_js_op>  
 
 # 16
 
 > [mengliul 發表於 2016-5-8 00:04](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=293049&ptid=21035)
+
 > 只是问下怎么把背景设成这样，还有怎么快速移动摄像机
 
 背景可以补丁调出，以后有空会发的，至于快速移动镜头，诀窍是耐心，并不能更快。
-<title>17</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 17
 
 > [starcraftorz 發表於 2016-5-8 01:18](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=293056&ptid=21035)
+
 > 恕小的無知，這個程式是哪一個阿，平常沒有在碰這類型的很好奇
 
 这个城市的名字不重要啦，sb4的游戏地图而已
-<title>18</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 18
 
 > [hsxz 發表於 2016-5-8 00:51](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=293052&ptid=21035)
+
 > 背景可以补丁调出，以后有空会发的，至于快速移动镜头，诀窍是耐心，并不能更快。
+
 > ...
 
 话说咱的回答不知道算不算回答，其实不太清楚您在问什么
-<title>19</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 19
 
 > [hsxz 發表於 2016-5-8 00:51](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=293052&ptid=21035)
+
 > 背景可以补丁调出，以后有空会发的，至于快速移动镜头，诀窍是耐心，并不能更快。
+
 > ...
 
 是游戏sexy beach pr←_←
-<title>20</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 20
 
 这是刚刚做的，把视频当成gif看吧![](static/image/smiley/girl/08.png)
-[http://pan.baidu.com/s/1sl3QU09](http://pan.baidu.com/s/1sl3QU09)<title>21</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+[http://pan.baidu.com/s/1sl3QU09](http://pan.baidu.com/s/1sl3QU09) 
 
 # 21
 
 > [hsxz 發表於 2016-5-8 17:14](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=293101&ptid=21035)
+
 > 这是刚刚做的，把视频当成gif看吧
+
 > http://pan.baidu.com/s/1sl3QU09
 
 建议下载下来看，原本画质是很好的
-<title>22</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 22
 
 [http://pan.baidu.com/s/1jH9UCdS](http://pan.baidu.com/s/1jH9UCdS)
+
 又做了个视频
-这个是这张的<title>23</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+这个是这张的 
 
 # 23
 
- <ignore_js_op>[QQ图片20160505175538.jpg](forum.php?mod=attachment&aid=NjExNjd8MDJlMjczMDh8MTYwMzg1NzA0N3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(101.39 KB, 下載次數: 11)*
+<ignore_js_op>[QQ图片20160505175538.jpg](forum.php?mod=attachment&aid=NjExNjd8MDJlMjczMDh8MTYwMzg1NzA0N3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(101.39 KB, 下載次數: 11)*
 
 [下載附件](forum.php?mod=attachment&aid=NjExNjd8MDJlMjczMDh8MTYwMzg1NzA0N3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
 2016-5-8 17:52 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![QQ图片20160505175538.jpg](img/90fb5f31c46c8468e5b08343fe77938d.png "QQ图片20160505175538.jpg")](javascript:;)</ignore_js_op> <title>24</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![QQ图片20160505175538.jpg](img/90fb5f31c46c8468e5b08343fe77938d.png "QQ图片20160505175538.jpg")](javascript:;)</ignore_js_op>  
 
 # 24
 
-怒更新一波，这波质量不错，但也许是最后一波了。之后会放自制的红蓝3d图吧，虽然效果不是很好<title>25</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+怒更新一波，这波质量不错，但也许是最后一波了。之后会放自制的红蓝3d图吧，虽然效果不是很好 
 
 # 25
 
- <ignore_js_op>[QQ图片20160506145447.jpg](forum.php?mod=attachment&aid=NjExOTR8NDU1ODBlZDl8MTYwMzg1NzA0N3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(117.87 KB, 下載次數: 3)*
+<ignore_js_op>[QQ图片20160506145447.jpg](forum.php?mod=attachment&aid=NjExOTR8NDU1ODBlZDl8MTYwMzg1NzA0N3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(117.87 KB, 下載次數: 3)*
 
 [下載附件](forum.php?mod=attachment&aid=NjExOTR8NDU1ODBlZDl8MTYwMzg1NzA0N3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
@@ -403,39 +430,43 @@ TID：21035
 
 2016-5-11 21:32 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![QQ图片20160506150019.jpg](img/9eaa4b41b6605fef897928187edc062b.png "QQ图片20160506150019.jpg")](javascript:;)</ignore_js_op> <title>26</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![QQ图片20160506150019.jpg](img/9eaa4b41b6605fef897928187edc062b.png "QQ图片20160506150019.jpg")](javascript:;)</ignore_js_op>  
 
 # 26
 
-漏了一炸，补上。。。。<title>27</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+漏了一炸，补上。。。。 
 
 # 27
 
- <ignore_js_op>[48DBE0A60B6260C2DA596E86C3B77E18.jpg](forum.php?mod=attachment&aid=NjEyOTd8MWU3ZGQyODh8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(142.07 KB, 下載次數: 9)*
+<ignore_js_op>[48DBE0A60B6260C2DA596E86C3B77E18.jpg](forum.php?mod=attachment&aid=NjEyOTd8MWU3ZGQyODh8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(142.07 KB, 下載次數: 9)*
 
 [下載附件](forum.php?mod=attachment&aid=NjEyOTd8MWU3ZGQyODh8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
 2016-5-13 17:07 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![48DBE0A60B6260C2DA596E86C3B77E18.jpg](img/994da34714784f18cc3047b4eae5eee3.png "48DBE0A60B6260C2DA596E86C3B77E18.jpg")](javascript:;)</ignore_js_op> <title>28</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![48DBE0A60B6260C2DA596E86C3B77E18.jpg](img/994da34714784f18cc3047b4eae5eee3.png "48DBE0A60B6260C2DA596E86C3B77E18.jpg")](javascript:;)</ignore_js_op>  
 
 # 28
 
 > [luffyoo 發表於 2016-6-20 20:58](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=297064&ptid=21035)
+
 > 楼主还有吗，都收藏了，求更QAQ
 
 这捏动作还蛮麻烦的，你们最好弄点草图，或者提出点子，我才能更下去（但是禁止黄色![](static/image/smiley/girl/07.png)擦边可以）
-<title>29</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 29
 
 [@luffyoo](https://giantessnight.com/gnforum2012/home.php?mod=space&uid=12203) 你要的胖次，挂上去有点难，但是每张图都有胖次就可以了吧
+
 （胖次什么的好污啊，怎么能穿呢？![](static/image/smiley/girl/29.png)）
-<title>30</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 30
 
- <ignore_js_op>[1.jpg](forum.php?mod=attachment&aid=NjE5MTh8ODYzZDNkNzZ8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(2.56 MB, 下載次數: 6)*
+<ignore_js_op>[1.jpg](forum.php?mod=attachment&aid=NjE5MTh8ODYzZDNkNzZ8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(2.56 MB, 下載次數: 6)*
 
 [下載附件](forum.php?mod=attachment&aid=NjE5MTh8ODYzZDNkNzZ8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
@@ -515,18 +546,21 @@ TID：21035
 
 10
 
-[![10](img/d5280445eef3202b6381ef6a4a725ab9.png "10")](javascript:;)</ignore_js_op> <title>31</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![10](img/d5280445eef3202b6381ef6a4a725ab9.png "10")](javascript:;)</ignore_js_op>  
 
 # 31
 
 @luffyoo
+
 看了你的帖子，才知道你说的是什么意思0 0.于是弄了几个
+
 貌似女主还瘦了点
-<title>32</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 32
 
- <ignore_js_op>[big.jpg](forum.php?mod=attachment&aid=NjE5NDR8OGZmMzBjZTB8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(2.37 MB, 下載次數: 1)*
+<ignore_js_op>[big.jpg](forum.php?mod=attachment&aid=NjE5NDR8OGZmMzBjZTB8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(2.37 MB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=NjE5NDR8OGZmMzBjZTB8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
@@ -546,17 +580,19 @@ TID：21035
 
 那个红色的东西是龙
 
-[![那个红色的东西是龙](img/d278f4a27a1f9f87fea4162e7feb43cd.png "那个红色的东西是龙")](javascript:;)</ignore_js_op> <title>33</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![那个红色的东西是龙](img/d278f4a27a1f9f87fea4162e7feb43cd.png "那个红色的东西是龙")](javascript:;)</ignore_js_op>  
 
 # 33
 
 @luffyoo
+
 之前的那个也做了个giga（最后一张红蓝3d）
-<title>34</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 34
 
- <ignore_js_op>[giga2.jpg](forum.php?mod=attachment&aid=NjE5NDd8MDQyZDNmY2F8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(2.27 MB, 下載次數: 4)*
+<ignore_js_op>[giga2.jpg](forum.php?mod=attachment&aid=NjE5NDd8MDQyZDNmY2F8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(2.27 MB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=NjE5NDd8MDQyZDNmY2F8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
@@ -574,32 +610,37 @@ TID：21035
 
 2016-6-26 23:40 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![3d.jpg](img/0c4c0b0f4696fdf2d2ad738306456fe1.png "3d.jpg")](javascript:;)</ignore_js_op> <title>35</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![3d.jpg](img/0c4c0b0f4696fdf2d2ad738306456fe1.png "3d.jpg")](javascript:;)</ignore_js_op>  
 
 # 35
 
 > [hsxz 發表於 2016-6-26 23:41](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=297832&ptid=21035)
+
 > @luffyoo
+
 > 之前的那个也做了个giga（最后一张红蓝3d）
 
 0 0要得颈椎病的。。。下载下来就能转向了
-<title>36</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 36
 
 > [archer 發表於 2016-6-30 17:16](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=298235&ptid=21035)
+
 > 地图啊楼主 求这个地图啊  到处都找不到
 
-我很抱歉，mod我也只是在贴吧上找到的，然而现在贴吧被禁，安装包也早删了，也并没有找到补丁的位置![](static/image/smiley/girl/26.png)<title>37</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+我很抱歉，mod我也只是在贴吧上找到的，然而现在贴吧被禁，安装包也早删了，也并没有找到补丁的位置![](static/image/smiley/girl/26.png) 
 
 # 37
 
 捏了个黑猫作为一个新坑，但只是捏了模型，其他的只是随便处理了下，大家除了吞食还想看到什么？
-<title>38</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 38
 
- <ignore_js_op>[TOVSH`LQD`{O`BH34T)S754.jpg](forum.php?mod=attachment&aid=NjIxMTd8NWUzZTc5ZjJ8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(2.24 MB, 下載次數: 3)*
+<ignore_js_op>[TOVSH`LQD`{O`BH34T)S754.jpg](forum.php?mod=attachment&aid=NjIxMTd8NWUzZTc5ZjJ8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(2.24 MB, 下載次數: 3)*
 
 [下載附件](forum.php?mod=attachment&aid=NjIxMTd8NWUzZTc5ZjJ8MTYwMzg1NzA5MHwxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
@@ -617,31 +658,35 @@ TID：21035
 
 2016-7-7 20:57 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![$M58T$190XIWS<ignore_js_opEXPNQJ(V.jpg](img/f3da923e5f5ea7d20f5f143a75de3082.png "$M58T$190XIWS<ignore_js_opEXPNQJ(V.jpg")](javascript:;)</ignore_js_op> <title>39</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![$M58T$190XIWS<ignore_js_opEXPNQJ(V.jpg](img/f3da923e5f5ea7d20f5f143a75de3082.png "$M58T$190XIWS<ignore_js_opEXPNQJ(V.jpg")](javascript:;)</ignore_js_op>  
 
 # 39
 
 > [4388239 發表於 2016-7-9 16:02](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=299332&ptid=21035)
+
 > 给力的图  群里见过
 
 ╭(°A°`)╮群里那个人就是我
-<title>40</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 40
 
 > [小小教授 發表於 2016-7-9 19:49](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=299352&ptid=21035)
+
 > 楼主高产啊，期待其他动漫人物，比如本子娜什么的
 
 本子娜也许不可能了，没有类似的发型，强行捏会很牵强的( •̀∀•́ )
-<title>41</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 41
 
-来一次小更新，精制的红蓝3d的图，有全彩版和半彩版。半彩不会闪瞎眼，比较柔和<title>42</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+来一次小更新，精制的红蓝3d的图，有全彩版和半彩版。半彩不会闪瞎眼，比较柔和 
 
 # 42
 
- <ignore_js_op>[立体增强非全彩1.jpg](forum.php?mod=attachment&aid=NjI0MTB8OWJlZDRjOWJ8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(393.14 KB, 下載次數: 0)*
+<ignore_js_op>[立体增强非全彩1.jpg](forum.php?mod=attachment&aid=NjI0MTB8OWJlZDRjOWJ8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(393.14 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=NjI0MTB8OWJlZDRjOWJ8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
@@ -653,17 +698,17 @@ TID：21035
 
 2016-7-19 18:39 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![全彩1.jpg](img/cbc2f38c9e11fc6ea510951b6b34b185.png "全彩1.jpg")](javascript:;)</ignore_js_op> <title>43</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![全彩1.jpg](img/cbc2f38c9e11fc6ea510951b6b34b185.png "全彩1.jpg")](javascript:;)</ignore_js_op>  
 
 # 43
 
 本来想等一个回复再更的，但是你们欺负人qaq
 
-口亨！下次没回复就不更了<title>44</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+口亨！下次没回复就不更了 
 
 # 44
 
- <ignore_js_op>[1.jpg](forum.php?mod=attachment&aid=NjI3MjB8MzdjNDhlYTJ8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(2.49 MB, 下載次數: 4)*
+<ignore_js_op>[1.jpg](forum.php?mod=attachment&aid=NjI3MjB8MzdjNDhlYTJ8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(2.49 MB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=NjI3MjB8MzdjNDhlYTJ8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
@@ -705,19 +750,21 @@ TID：21035
 
 2016-8-6 22:12 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![7.jpg](img/d1dc4debd1578b187499e3b49d0cd25a.png "7.jpg")](javascript:;)</ignore_js_op> <title>45</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![7.jpg](img/d1dc4debd1578b187499e3b49d0cd25a.png "7.jpg")](javascript:;)</ignore_js_op>  
 
 # 45
 
 **那么多回复，我吼开心，怒更一波。其实只是刚刚漏发的←这里没有文字，真的**
 
 **这两张3d效果也不错，我把3d版也发上来。**
+
 **红蓝3d反正颜色也看不清，选个柔和的滤镜，是为了增强立体感。（不是你撸多了）****←这里也没有文字**
-<title>46</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 46
 
- <ignore_js_op>[岁的法国.jpg](forum.php?mod=attachment&aid=NjI3Mjh8Yzk3OTdlOTd8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(2.83 MB, 下載次數: 4)*
+<ignore_js_op>[岁的法国.jpg](forum.php?mod=attachment&aid=NjI3Mjh8Yzk3OTdlOTd8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(2.83 MB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=NjI3Mjh8Yzk3OTdlOTd8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
@@ -741,21 +788,23 @@ TID：21035
 
 2016-8-6 22:37 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![柔和C.jpg](img/5bbba9560c5a6bd5b9a65d349d59759f.png "柔和C.jpg")](javascript:;)</ignore_js_op> <title>47</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![柔和C.jpg](img/5bbba9560c5a6bd5b9a65d349d59759f.png "柔和C.jpg")](javascript:;)</ignore_js_op>  
 
 # 47
 
 *本帖最後由 hsxz 於 2016-8-9 15:49 編輯*
 
 这次发一个**红蓝3d gif**（附件**照片**为其中一部分，**仅共预览**）
+
 没有红蓝3d眼镜的请默默离开 花了几乎一整天，做了50多张图，两两拼成一张红蓝3d，再做成了gif，累死了，所以这次适当收个费。（gif颜色失真不可避免，调试了很久才勉强弄好）
+
 虽然是虚拟币，我收了也没用，同时我也不缺，但毕竟辛辛苦苦做出来的，象征性收而已！（蛐蛐5d，也不搞事了，不然买过的人就亏了） 
 
-<title>48</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 48
 
- <ignore_js_op>[dsadsad.gif](forum.php?mod=attachment&aid=NjI3NzR8ZTBmNmRlZGV8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(13.93 MB, 下載次數: 47)*
+<ignore_js_op>[dsadsad.gif](forum.php?mod=attachment&aid=NjI3NzR8ZTBmNmRlZGV8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(13.93 MB, 下載次數: 47)*
 
 [下載附件](forum.php?mod=attachment&aid=NjI3NzR8ZTBmNmRlZGV8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
@@ -771,20 +820,25 @@ gif（有失真）
 
 供预览
 
-[![供预览](img/d84ce6ded982ac0d93ffd57d72868f8f.png "供预览")](javascript:;)</ignore_js_op> <title>49</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![供预览](img/d84ce6ded982ac0d93ffd57d72868f8f.png "供预览")](javascript:;)</ignore_js_op>  
 
 # 49
 
 *本帖最後由 hsxz 於 2016-8-10 01:06 編輯*
 
 psd文件太大，竟然发不上来。那么只发略有失真的gif了
+
 其实顶多有一点点马赛克而已
+
 而这马赛克其实也已经被我优化地看不出了（带上3d眼镜后）←无白字
+
 还有强调一下，*绿色**（撸多了）视角*
+
 ***不是gif的失真***
+
 *是为了**增强**3d感做的设置* 
 
-<title>50</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 50
 
@@ -807,27 +861,28 @@ psd文件太大，竟然发不上来。那么只发略有失真的gif了
 2016-8-10 01:13 上傳
 
 （已附原图）
-<title>51</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 51
 
- <ignore_js_op>[honglan3d2.gif](forum.php?mod=attachment&aid=NjI3OTV8M2FhNjIwYTB8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(17.49 MB, 下載次數: 34)*
+<ignore_js_op>[honglan3d2.gif](forum.php?mod=attachment&aid=NjI3OTV8M2FhNjIwYTB8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(17.49 MB, 下載次數: 34)*
 
 [下載附件](forum.php?mod=attachment&aid=NjI3OTV8M2FhNjIwYTB8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
 2016-8-10 01:18 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-![honglan3d2.gif](img/10c6cc1f83c5634c6556227c8e7f1337.png "honglan3d2.gif")</ignore_js_op> <title>52</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+![honglan3d2.gif](img/10c6cc1f83c5634c6556227c8e7f1337.png "honglan3d2.gif")</ignore_js_op>  
 
 # 52
 
 *本帖最後由 hsxz 於 2016-8-14 22:51 編輯*
 
-来一组3d图了。。。**名字随便打的不要在意**<title>53</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+来一组3d图了。。。**名字随便打的不要在意** 
 
 # 53
 
- <ignore_js_op>[发士大夫.jpg](forum.php?mod=attachment&aid=NjI5NzF8OWI4ODM0ODJ8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(497.55 KB, 下載次數: 2)*
+<ignore_js_op>[发士大夫.jpg](forum.php?mod=attachment&aid=NjI5NzF8OWI4ODM0ODJ8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes) *(497.55 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=NjI5NzF8OWI4ODM0ODJ8MTYwMzg1NzE5M3wxODIzMHwyMTAzNQ%3D%3D&nothumb=yes)
 
@@ -869,17 +924,21 @@ psd文件太大，竟然发不上来。那么只发略有失真的gif了
 
 2016-8-14 22:29 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![下.jpg](img/8457dba5f444337261704c95a53062f8.png "下.jpg")](javascript:;)</ignore_js_op> <title>54</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![下.jpg](img/8457dba5f444337261704c95a53062f8.png "下.jpg")](javascript:;)</ignore_js_op>  
 
 # 54
 
 前面视频云盘都挂了，我这里在补上合集，预览图什么的就不发了。（只有一个视频由于太长，录制工具不行，不是高清，然而这个内容质量最好，由于不是mmd做的，镜头要同时自己切，所以还是有一些不足）
+
 **视频是原创的，其他地方（除了qq群）都没有发过，请不要随便转载。**
+
 http://pan.baidu.com/s/1bVpvHW      
+
 6u9i
+
 *这次更新结束后，暂时停更。9个月后回来，还是在这个帖子上更新。*
 
-<title>55</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 55
 

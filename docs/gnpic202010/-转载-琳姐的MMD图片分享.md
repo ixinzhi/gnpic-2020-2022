@@ -4,16 +4,17 @@
 
 TID：27215
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 应琳姐之邀，转来了她的精美MMD图
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[83203AF3-3A4B-406F-9C56-D7FDDDB34960.jpeg](forum.php?mod=attachment&aid=NzkzMDB8ZTFiN2Q5NDd8MTYwMzgzMzExM3wxODIzMHwyNzIxNQ%3D%3D&nothumb=yes) *(245.95 KB, 下載次數: 5)*
+<ignore_js_op>[83203AF3-3A4B-406F-9C56-D7FDDDB34960.jpeg](forum.php?mod=attachment&aid=NzkzMDB8ZTFiN2Q5NDd8MTYwMzgzMzExM3wxODIzMHwyNzIxNQ%3D%3D&nothumb=yes) *(245.95 KB, 下載次數: 5)*
 
 [下載附件](forum.php?mod=attachment&aid=NzkzMDB8ZTFiN2Q5NDd8MTYwMzgzMzExM3wxODIzMHwyNzIxNQ%3D%3D&nothumb=yes)
 

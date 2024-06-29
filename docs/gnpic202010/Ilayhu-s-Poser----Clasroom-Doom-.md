@@ -4,7 +4,7 @@
 
 TID：5749
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -24,11 +24,11 @@ P.S.希望有人能翻譯它為人民
 
 歡迎評論
 
-Ilayhu<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+Ilayhu 
 
 # 2
 
- <ignore_js_op>[sl017 copy.jpg](forum.php?mod=attachment&aid=MTUxMjV8ZDBkMjU1MjV8MTYwMzg3Nzc3MHwxODIzMHw1NzQ5&nothumb=yes) *(136.65 KB, 下載次數: 12)*
+<ignore_js_op>[sl017 copy.jpg](forum.php?mod=attachment&aid=MTUxMjV8ZDBkMjU1MjV8MTYwMzg3Nzc3MHwxODIzMHw1NzQ5&nothumb=yes) *(136.65 KB, 下載次數: 12)*
 
 [下載附件](forum.php?mod=attachment&aid=MTUxMjV8ZDBkMjU1MjV8MTYwMzg3Nzc3MHwxODIzMHw1NzQ5&nothumb=yes)
 
@@ -88,7 +88,7 @@ Ilayhu<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="sty
 
 2009-11-18 01:39 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![sl075 copy.jpg](static/image/common/none.gif "sl075 copy.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![sl075 copy.jpg](static/image/common/none.gif "sl075 copy.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 

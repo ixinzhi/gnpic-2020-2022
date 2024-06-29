@@ -4,7 +4,7 @@
 
 TID：17886
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -92,7 +92,7 @@ ilayhu
 
 2014-10-10 05:53 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -170,11 +170,12 @@ ilayhu
 
 2015-1-8 22:57 上傳
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
 > [qq1261029704 發表於 2015-1-10 17:11](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=243780&ptid=17886)
+
 > 这网站要怎样才能注册撒？好像需要交钱啥的
 
 您可以通过PayPal支付[ilayhu@gmail.com](mailto:ilayhu@gmail.com)
@@ -184,7 +185,8 @@ ilayhu
 you can pay via Paypal to [ilayhu@gmail.com](mailto:ilayhu@gmail.com)
 
 any questions: [ilayhu@gmail.com](mailto:ilayhu@gmail.com)
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 4
 
@@ -254,7 +256,7 @@ ilayhu
 
 2015-5-14 06:10 上傳
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 
@@ -269,6 +271,7 @@ ilayhu
 ilayhu
 
 接受PayPal
+
 联系：[ilayhu@gmail.com](mailto:ilayhu@gmail.com)
 
 <ignore_js_op>![](img/68c568f357921573dd4648e94a4a0125.png)
@@ -319,21 +322,23 @@ ilayhu
 
 2015-6-12 00:54 上傳
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
 业主：ilayhu
+
 联系方式：[ilayhu@gmail.com](mailto:ilayhu@gmail.com)
 
 Verotel支付：
+
 [http://www.shrinking-woman.com/join.html](http://www.shrinking-woman.com/join.html)
 
 其他款项：Paypal, Western Union
 
 非常感谢你的支持
 
-ilayhu<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ilayhu 
 
 # 7
 
@@ -348,6 +353,7 @@ ilayhu<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="sty
 ilayhu
 
 接受PayPal
+
 联系：[ilayhu@gmail.com](mailto:ilayhu@gmail.com)
 
 <ignore_js_op>![](img/8a52509dba08b997862e0db84b3edab5.png)
@@ -398,7 +404,7 @@ ilayhu
 
 2015-7-22 05:30 上傳
 
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 8
 
@@ -415,6 +421,7 @@ ilayhu
 ilayhu
 
 接受PayPal
+
 联系：[ilayhu@gmail.com](mailto:ilayhu@gmail.com)
 
 <ignore_js_op>![](img/894fde0d1386b032bbd753e57bc2d8c2.png)
@@ -481,11 +488,12 @@ ilayhu
 
 2015-9-29 03:53 上傳
 
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 9
 
 > [whrlovexm 發表於 2016-3-28 23:10](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=288661&ptid=17886)
+
 > 要绑定信用卡，英语太渣了，看不懂，如何付费？
 
 我们也使用支付宝, PAYPAL.
@@ -498,7 +506,7 @@ PAYPAL: [ilayhu@gmail.com](mailto:ilayhu@gmail.com)
 
 ilayhu
 
-<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 10
 
@@ -515,6 +523,7 @@ ilayhu
 ilayhu
 
 接受PayPal
+
 联系：[ilayhu@gmail.com](mailto:ilayhu@gmail.com)
 
 <ignore_js_op>![](img/97c65b83afa0f11cdafe537680fa4e0d.png)
@@ -597,7 +606,7 @@ ilayhu
 
 2016-9-10 08:09 上傳
 
-<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 11
 
@@ -614,12 +623,14 @@ ilayhu
 ilayhu
 
 接受PayPal
+
 联系：[ilayhu@gmail.com](mailto:ilayhu@gmail.com)
-<title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 12
 
- <ignore_js_op>[SW-2015-week039-OUAT2part07.jpg](forum.php?mod=attachment&aid=Njk4NDd8NzVjZTFhOTJ8MTYwMzgyNzQyNHwxODIzMHwxNzg4Ng%3D%3D&nothumb=yes) *(319.13 KB, 下載次數: 0)*
+<ignore_js_op>[SW-2015-week039-OUAT2part07.jpg](forum.php?mod=attachment&aid=Njk4NDd8NzVjZTFhOTJ8MTYwMzgyNzQyNHwxODIzMHwxNzg4Ng%3D%3D&nothumb=yes) *(319.13 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=Njk4NDd8NzVjZTFhOTJ8MTYwMzgyNzQyNHwxODIzMHwxNzg4Ng%3D%3D&nothumb=yes)
 
@@ -679,7 +690,7 @@ ilayhu
 
 2017-11-19 04:20 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![SW-2015-week049-rev2part05.jpg](img/7effc4066e264329cabec0c34b805765.png "SW-2015-week049-rev2part05.jpg")](javascript:;)</ignore_js_op> <title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![SW-2015-week049-rev2part05.jpg](img/7effc4066e264329cabec0c34b805765.png "SW-2015-week049-rev2part05.jpg")](javascript:;)</ignore_js_op>  
 
 # 13
 
@@ -696,11 +707,12 @@ ilayhu
 ilayhu
 
 接受PayPal
-联系：[ilayhu@gmail.com](mailto:ilayhu@gmail.com)<title>14</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+联系：[ilayhu@gmail.com](mailto:ilayhu@gmail.com) 
 
 # 14
 
- <ignore_js_op>[SW-2015-week050-rev2part06.jpg](forum.php?mod=attachment&aid=ODQ0Mzh8OTgzOGFkOTJ8MTYwMzgyNzQyNHwxODIzMHwxNzg4Ng%3D%3D&nothumb=yes) *(323.64 KB, 下載次數: 0)*
+<ignore_js_op>[SW-2015-week050-rev2part06.jpg](forum.php?mod=attachment&aid=ODQ0Mzh8OTgzOGFkOTJ8MTYwMzgyNzQyNHwxODIzMHwxNzg4Ng%3D%3D&nothumb=yes) *(323.64 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=ODQ0Mzh8OTgzOGFkOTJ8MTYwMzgyNzQyNHwxODIzMHwxNzg4Ng%3D%3D&nothumb=yes)
 

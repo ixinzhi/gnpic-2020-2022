@@ -4,16 +4,17 @@
 
 TID：22498
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 luke 於 2017-10-11 19:06 編輯*
 
 其實是一小段影片，截一些圖上來
+
 ˊˊˊ主角依然是芙蘭妹妹
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

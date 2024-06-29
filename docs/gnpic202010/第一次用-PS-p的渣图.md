@@ -4,18 +4,19 @@
 
 TID：15714
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本文章最後由 fllg 於 2013-12-7 20:21 編輯*
 
 新手，勿怪。
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[sadqweddsf.jpg](forum.php?mod=attachment&aid=Mzg2MTR8ZmYzYTg5MmR8MTYwMzg3MjI0MHwxODIzMHwxNTcxNA%3D%3D&nothumb=yes) *(60.02 KB, 下載次數: 1)*
+<ignore_js_op>[sadqweddsf.jpg](forum.php?mod=attachment&aid=Mzg2MTR8ZmYzYTg5MmR8MTYwMzg3MjI0MHwxODIzMHwxNTcxNA%3D%3D&nothumb=yes) *(60.02 KB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=Mzg2MTR8ZmYzYTg5MmR8MTYwMzg3MjI0MHwxODIzMHwxNTcxNA%3D%3D&nothumb=yes)
 

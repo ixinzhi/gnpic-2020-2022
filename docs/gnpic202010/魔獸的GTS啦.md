@@ -4,16 +4,17 @@
 
 TID：179
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 嗯...終於有機會去抓抓圖,
-現PO上來吧<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+現PO上來吧 
 
 # 2
 
- <ignore_js_op>[WoWScrnShot_051007_224543.jpg](forum.php?mod=attachment&aid=ODEwfDZmYzE3NTcwfDE2MDM4ODM4Mzh8MTgyMzB8MTc5&nothumb=yes) *(111.66 KB, 下載次數: 13)*
+<ignore_js_op>[WoWScrnShot_051007_224543.jpg](forum.php?mod=attachment&aid=ODEwfDZmYzE3NTcwfDE2MDM4ODM4Mzh8MTgyMzB8MTc5&nothumb=yes) *(111.66 KB, 下載次數: 13)*
 
 [下載附件](forum.php?mod=attachment&aid=ODEwfDZmYzE3NTcwfDE2MDM4ODM4Mzh8MTgyMzB8MTc5&nothumb=yes)
 
@@ -37,7 +38,7 @@ TID：179
 
 王前還有一堆「小」屋
 
-![王前還有一堆「小」屋](static/image/common/none.gif "王前還有一堆「小」屋")</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+![王前還有一堆「小」屋](static/image/common/none.gif "王前還有一堆「小」屋")</ignore_js_op>  
 
 # 3
 

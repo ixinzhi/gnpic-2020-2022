@@ -4,19 +4,21 @@
 
 TID：20851
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 个人汉化。有点差。就不收费了。
+
 [http://pan.baidu.com/s/1mht4ciO](http://pan.baidu.com/s/1mht4ciO)
+
 0ixx
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[01.jpg](forum.php?mod=attachment&aid=NjAzNTh8Y2VkNDk1ZDd8MTYwMzg1MjE4NnwxODIzMHwyMDg1MQ%3D%3D&nothumb=yes) *(412.17 KB, 下載次數: 95)*
+<ignore_js_op>[01.jpg](forum.php?mod=attachment&aid=NjAzNTh8Y2VkNDk1ZDd8MTYwMzg1MjE4NnwxODIzMHwyMDg1MQ%3D%3D&nothumb=yes) *(412.17 KB, 下載次數: 95)*
 
 [下載附件](forum.php?mod=attachment&aid=NjAzNTh8Y2VkNDk1ZDd8MTYwMzg1MjE4NnwxODIzMHwyMDg1MQ%3D%3D&nothumb=yes)
 

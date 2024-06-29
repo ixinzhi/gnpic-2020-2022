@@ -4,14 +4,16 @@
 
 TID：16925
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 ADSL 於 2014-5-24 16:03 編輯*
 
 大概就是，昨天晚上下载了MMD软件玩了一下。
+
 然后就随便弄了几张渣图。（渣技术渣机配的情况下，视频什么的还是算了吧ORZ）
+
 其实只是玩了一下视角梗，求教大触如何缩小人物？
 
 （哼，才不是不务正业呢！
@@ -22,7 +24,7 @@ TID：16925
 
 之后可能会更新？
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -47,6 +49,7 @@ TID：16925
 2014-5-24 12:59 上傳
 
 之后才是正题？
+
 视角XD
 
 <ignore_js_op>![](img/a8e8cd06192723c0d92c11fa7376a3f5.png)

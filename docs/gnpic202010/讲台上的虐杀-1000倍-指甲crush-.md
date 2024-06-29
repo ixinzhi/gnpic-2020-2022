@@ -4,17 +4,17 @@
 
 TID：16871
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 如果你是其中的一个男生，会怎么想怎么做？
 
-自制，摆动作比想象中的更花费时间。<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+自制，摆动作比想象中的更花费时间。 
 
 # 2
 
- <ignore_js_op>[2014_0517_0413_47554.jpg](forum.php?mod=attachment&aid=NDI5OTV8NDA2NmVkZjR8MTYwMzg0MzkwMXwxODIzMHwxNjg3MQ%3D%3D&nothumb=yes) *(162.32 KB, 下載次數: 195)*
+<ignore_js_op>[2014_0517_0413_47554.jpg](forum.php?mod=attachment&aid=NDI5OTV8NDA2NmVkZjR8MTYwMzg0MzkwMXwxODIzMHwxNjg3MQ%3D%3D&nothumb=yes) *(162.32 KB, 下載次數: 195)*
 
 [下載附件](forum.php?mod=attachment&aid=NDI5OTV8NDA2NmVkZjR8MTYwMzg0MzkwMXwxODIzMHwxNjg3MQ%3D%3D&nothumb=yes)
 
@@ -50,11 +50,12 @@ TID：16871
 
 2014-5-17 04:22 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![2014_0517_0410_19065.jpg](img/dac647f3fda29b8b483d70d7e2c946c4.png "2014_0517_0410_19065.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![2014_0517_0410_19065.jpg](img/dac647f3fda29b8b483d70d7e2c946c4.png "2014_0517_0410_19065.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > [xsd00000000 發表於 2015-5-26 13:26](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=255767&ptid=16871)
+
 > 楼主做的不错，讲台，女教师
 
 明显不是女教师。。。这是女同学。。。

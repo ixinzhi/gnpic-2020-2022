@@ -4,7 +4,7 @@
 
 TID：16782
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -65,24 +65,33 @@ TID：16782
 2014-5-3 12:21 上傳
 
 小是罪恶，而这是最好最仁慈的惩罚
+
 请勿转载
+
 有空我再发到缩小女那里
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 不知道是否合版规要求
+
 感觉自从有了这个小人模型，才能把恋足变成恋足gts，生动了不少
+
 也许下次应该加加表情
+
 不过我真的不知道怎么才能保存啊
+
 做好了以后截图，关了就没了。。。
-总共15分钟的活动吧，没用多大力气<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+总共15分钟的活动吧，没用多大力气 
 
 # 3
 
 > [coolyangzc 發表於 2014-5-3 12:44](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=221592&ptid=16782)
+
 > LZ赞一个
+
 > 苍姬的表情。。。是被玩坏了么
 
 被女孩的脚趾头玩玩，你也会这样的吧。。。</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

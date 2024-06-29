@@ -4,11 +4,11 @@
 
 TID：21928
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-终于 摆脱拖文的阴影了，我也能试试作图了，但是刚开始用这东西，还是不太熟悉 。不知道怎么能把动作更自由化一些<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+终于 摆脱拖文的阴影了，我也能试试作图了，但是刚开始用这东西，还是不太熟悉 。不知道怎么能把动作更自由化一些 
 
 # 2
 
@@ -63,26 +63,31 @@ TID：21928
 2016-10-3 23:51 上傳
 
 这次先简单的罗列一下，希望各位大佬能加个好友交流一下，新人膜拜{![](static/image/smiley/bigface/11.gif)}
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 3
 
 > 447825856 發表於 2016-10-4 00:20
+
 > 怎么说呢，看到你的签名我觉得我该回复一发了，图用啥软件做的？看起来不错啊 ...
 
-软件是honey select，需要进入studio模式。大小调节在右侧“移动”中的缩放项目<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+软件是honey select，需要进入studio模式。大小调节在右侧“移动”中的缩放项目 
 
 # 4
 
 > remirs 發表於 2016-10-4 01:33
+
 > 怎么调节人物大小。。。
 
-软件是honey select，需要进入studio模式。大小调节在右侧“移动”中的缩放项目下楼上图<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+软件是honey select，需要进入studio模式。大小调节在右侧“移动”中的缩放项目下楼上图 
 
 # 5
 
 游戏本体的话，百度 “honey select”有很多资源，基本上4g左右都是，记得弄汉化。
+
 具体使用方法，看下图
+
 <ignore_js_op>![](img/41df2a139a26a21fcaea21b1826cadfa.png)
 
 **无标题.jpg** *(153.88 KB, 下載次數: 2)*
@@ -91,11 +96,12 @@ TID：21928
 
 2016-10-4 08:56 上傳
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
 > vipergtr 發表於 2016-10-4 13:04
+
 > 做得很好啊，摆姿势啥的慢慢来吧，熟练了就好了，支持支持
 
 感谢大佬支持，话说大佬在群里吗</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

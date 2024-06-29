@@ -4,7 +4,7 @@
 
 TID：7552
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -15,10 +15,13 @@ TID：7552
 身為一個版主，竟然帶頭灌水，我表示壓力很大。
 
 話說回來
+
 論壇上的SM眾還是真多啊，不知道各位M都是什麽類型，又喜歡什麼樣的S呢？
+
 我是忠犬攻+女王受，所繪人物就是個人最喜歡的類型了。我喜欢的类型~~~~
 
 那就是：“爱！”
+
 不过，要具体说清，也不是那么简单.........
 
 下面两位就是小说里面的主角了，不过，既想要表现世界观，又想要硬的设定看很多资料，还要叙述好剧情，最后换得要加上GTS，于是乎，小说就这么华丽的卡壳了。![](static/image/smiley/bigface/7.gif)   
@@ -34,6 +37,7 @@ TID：7552
 本来想，把男猪缩小不就行了么，结果发现左脚位置太高了，悬空了...............
 
 什么，你说颜色变了？那只是你的幻觉。
+
 <ignore_js_op>![](img/58e5036b904138b56f45013535ce7558.png)
 
 **43-2.jpg** *(250.37 KB, 下載次數: 0)*
@@ -42,11 +46,12 @@ TID：7552
 
 2010-4-18 16:41 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 ![](static/image/smiley/bigface/60.gif)  
+
 其實第二個是細菌級別的
 
 ![](static/image/smiley/bigface/8.gif)  因為姿勢問題 已經沒法添加了................................................</ignore_js_op></ignore_js_op>

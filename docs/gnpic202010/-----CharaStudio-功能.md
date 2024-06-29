@@ -4,7 +4,7 @@
 
 TID：25492
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -28,7 +28,7 @@ TID：25492
 
 突發奇想的嘗試作，因為是第一次做別在意右上的選單
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

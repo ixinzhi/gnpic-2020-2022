@@ -4,7 +4,7 @@
 
 TID：12389
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -20,7 +20,7 @@ TID：12389
 
 2012-5-27 03:55 上傳
 
-[ *本帖最後由 xnr 於 2012-5-27 03:55 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2012-5-27 03:55 編輯* ] 
 
 # 2
 

@@ -4,15 +4,15 @@
 
 TID：8173
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-。。。。。。。<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+。。。。。。。 
 
 # 2
 
- <ignore_js_op>[7f078f4ba744ad0808f7ef57.jpg](forum.php?mod=attachment&aid=MjA5Mzh8Y2QzNjA4Mzl8MTYwMzg3OTY1NXwxODIzMHw4MTcz&nothumb=yes) *(137.08 KB, 下載次數: 8)*
+<ignore_js_op>[7f078f4ba744ad0808f7ef57.jpg](forum.php?mod=attachment&aid=MjA5Mzh8Y2QzNjA4Mzl8MTYwMzg3OTY1NXwxODIzMHw4MTcz&nothumb=yes) *(137.08 KB, 下載次數: 8)*
 
 [下載附件](forum.php?mod=attachment&aid=MjA5Mzh8Y2QzNjA4Mzl8MTYwMzg3OTY1NXwxODIzMHw4MTcz&nothumb=yes)
 

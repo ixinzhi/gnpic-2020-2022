@@ -4,7 +4,7 @@
 
 TID：2392
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ Also put them in rar's so its easier for others. Enjoy!
 
 也使他们的RAR的，以便它更容易为他人。享受！
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[Gsgarden-1.jpg](forum.php?mod=attachment&aid=NzI3M3xlNWQyNGRmN3wxNjAzODgyOTYyfDE4MjMwfDIzOTI%3D&nothumb=yes) *(186.25 KB, 下載次數: 10)*
+<ignore_js_op>[Gsgarden-1.jpg](forum.php?mod=attachment&aid=NzI3M3xlNWQyNGRmN3wxNjAzODgyOTYyfDE4MjMwfDIzOTI%3D&nothumb=yes) *(186.25 KB, 下載次數: 10)*
 
 [下載附件](forum.php?mod=attachment&aid=NzI3M3xlNWQyNGRmN3wxNjAzODgyOTYyfDE4MjMwfDIzOTI%3D&nothumb=yes)
 

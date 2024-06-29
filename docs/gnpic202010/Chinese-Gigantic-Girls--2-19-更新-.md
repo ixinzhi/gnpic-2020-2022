@@ -4,7 +4,7 @@
 
 TID：26093
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -100,31 +100,37 @@ TID：26093
 
 2018-11-22 03:46 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > [sjw 發表於 2018-11-22 08:50](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=391174&ptid=26093)
+
 > kyojingirls大大，发个教程呗~
 
 有机会我就会做教程！你也应该做教程，你的照片也很棒！![](static/image/smiley/bigface/58.gif)
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 3
 
 > [spacewolves 發表於 2018-11-22 14:09](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=391183&ptid=26093)
+
 > 最喜欢的是最后一张。
 
 谢谢！我发现很多Deviantart的粉丝喜欢那张
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 4
 
 > [Nagoya0519 發表於 2018-11-22 14:42](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=391185&ptid=26093)
+
 > 很喜歡大大的作品 第一次看到是在deviantart上面看到的 以後在GN就能追真是太好了 ...
 
 我很高兴你喜欢我的作品 ![](static/image/smiley/bigface/4.gif)
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 5
 
@@ -162,7 +168,7 @@ TID：26093
 
 2018-12-4 11:19 上傳
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
@@ -190,7 +196,7 @@ TID：26093
 
 2018-12-6 14:56 上傳
 
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 7
 
@@ -218,23 +224,27 @@ TID：26093
 
 2018-12-20 17:51 上傳
 
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 8
 
 > [zuolong 發表於 2018-12-6 21:53](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=391898&ptid=26093)
+
 > 最新的这次中间的图看起来很有感觉
 
 谢谢你！![](static/image/smiley/bigface/58.gif)                                             
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 9
 
 > [clever 發表於 2018-12-21 15:55](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=392750&ptid=26093)
+
 > 楼主真的很棒唉！很好看 加油～期待更新～很喜欢dalalo的作品！
 
 谢谢！我有空的时候会再做一些图片！![](static/image/smiley/bigface/4.gif)
-<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 10
 
@@ -256,17 +266,17 @@ TID：26093
 
 2018-12-22 15:44 上傳
 
-<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 11
 
- <ignore_js_op>[zg65.jpg](forum.php?mod=attachment&aid=NzU5MDh8YzM2MDYxOGF8MTYwMzg0NTgyNnwxODIzMHwyNjA5Mw%3D%3D&nothumb=yes) *(1.15 MB, 下載次數: 0)*
+<ignore_js_op>[zg65.jpg](forum.php?mod=attachment&aid=NzU5MDh8YzM2MDYxOGF8MTYwMzg0NTgyNnwxODIzMHwyNjA5Mw%3D%3D&nothumb=yes) *(1.15 MB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=NzU5MDh8YzM2MDYxOGF8MTYwMzg0NTgyNnwxODIzMHwyNjA5Mw%3D%3D&nothumb=yes)
 
 2018-12-22 15:44 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![zg65.jpg](img/1dfb2ef705115aec01ec728e7a4275b2.png "zg65.jpg")](javascript:;)</ignore_js_op> <title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![zg65.jpg](img/1dfb2ef705115aec01ec728e7a4275b2.png "zg65.jpg")](javascript:;)</ignore_js_op>  
 
 # 12
 

@@ -4,18 +4,19 @@
 
 TID：15867
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本文章最後由 fllg 於 2013-12-31 06:21 編輯*
 
 那个是你的女神?附：（ 后面两个我也不认识。求解。）
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[2fdda3cc7cd98d106fce332f233fb80e7bec9091_副本.jpg](forum.php?mod=attachment&aid=Mzg5NTJ8MmNlZmRlNWZ8MTYwMzg2NTgyOXwxODIzMHwxNTg2Nw%3D%3D&nothumb=yes) *(2.18 MB, 下載次數: 32)*
+<ignore_js_op>[2fdda3cc7cd98d106fce332f233fb80e7bec9091_副本.jpg](forum.php?mod=attachment&aid=Mzg5NTJ8MmNlZmRlNWZ8MTYwMzg2NTgyOXwxODIzMHwxNTg2Nw%3D%3D&nothumb=yes) *(2.18 MB, 下載次數: 32)*
 
 [下載附件](forum.php?mod=attachment&aid=Mzg5NTJ8MmNlZmRlNWZ8MTYwMzg2NTgyOXwxODIzMHwxNTg2Nw%3D%3D&nothumb=yes)
 
@@ -57,15 +58,15 @@ TID：15867
 
 2013-12-31 06:21 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![tttt2.jpg](img/ff36d646d4b666b568ec1dfae4ee8c5f.png "tttt2.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![tttt2.jpg](img/ff36d646d4b666b568ec1dfae4ee8c5f.png "tttt2.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
-第二期，加入了几个新的<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+第二期，加入了几个新的 
 
 # 4
 
- <ignore_js_op>[m3.jpg](forum.php?mod=attachment&aid=MzkwMDB8YjYyYWFmMmV8MTYwMzg2NTgyOXwxODIzMHwxNTg2Nw%3D%3D&nothumb=yes) *(507.52 KB, 下載次數: 4)*
+<ignore_js_op>[m3.jpg](forum.php?mod=attachment&aid=MzkwMDB8YjYyYWFmMmV8MTYwMzg2NTgyOXwxODIzMHwxNTg2Nw%3D%3D&nothumb=yes) *(507.52 KB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=MzkwMDB8YjYyYWFmMmV8MTYwMzg2NTgyOXwxODIzMHwxNTg2Nw%3D%3D&nothumb=yes)
 

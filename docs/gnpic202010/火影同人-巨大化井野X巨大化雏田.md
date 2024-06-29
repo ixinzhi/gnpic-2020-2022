@@ -4,11 +4,12 @@
 
 TID：10071
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 本来还打算再画个天天的，结果......意外情况而已![](static/image/smiley/bigface/26.gif)
+
 <ignore_js_op>![](img/905ed76d48e33e0ead8dd2a555144ff3.png)
 
 **IMG0733A.jpg** *(42.4 KB, 下載次數: 0)*
@@ -26,4 +27,5 @@ TID：10071
 2011-4-30 18:23 上傳
 
 画雏田时有些低潮，画的不是很好......
+
 天天姐姐![](static/image/smiley/bigface/26.gif) .......我最喜欢了![](static/image/smiley/bigface/26.gif) ........</ignore_js_op></ignore_js_op>

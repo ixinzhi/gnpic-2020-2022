@@ -4,7 +4,7 @@
 
 TID：1911
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -104,7 +104,7 @@ YA-HA!!!
 
 2009-1-7 05:56 上傳
 
-[ *本帖最後由 Trayx 於 2009-1-8 01:21 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 Trayx 於 2009-1-8 01:21 編輯* ] 
 
 # 2
 
@@ -228,7 +228,7 @@ YA-HA!!!
 
 2009-1-8 14:18 上傳
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
@@ -242,11 +242,11 @@ Enjoy
 
 YA-HA!!!
 
-![](static/image/smiley/bigface/44.gif)<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+![](static/image/smiley/bigface/44.gif) 
 
 # 4
 
- <ignore_js_op>[1f8fac61ffb94d238373b68ba3c.jpg](forum.php?mod=attachment&aid=NjgyNHxmOGYwNmVhOHwxNjAzODc5MjEyfDE4MjMwfDE5MTE%3D&nothumb=yes) *(317.07 KB, 下載次數: 4)*
+<ignore_js_op>[1f8fac61ffb94d238373b68ba3c.jpg](forum.php?mod=attachment&aid=NjgyNHxmOGYwNmVhOHwxNjAzODc5MjEyfDE4MjMwfDE5MTE%3D&nothumb=yes) *(317.07 KB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=NjgyNHxmOGYwNmVhOHwxNjAzODc5MjEyfDE4MjMwfDE5MTE%3D&nothumb=yes)
 
@@ -294,7 +294,7 @@ YA-HA!!!
 
 2009-3-10 00:28 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![uruseiyatsurax-done.jpg](static/image/common/none.gif "uruseiyatsurax-done.jpg")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![uruseiyatsurax-done.jpg](static/image/common/none.gif "uruseiyatsurax-done.jpg")](javascript:;)</ignore_js_op>  
 
 # 5
 
@@ -308,11 +308,11 @@ Here's my latest set.
 
 这是我的最新规定。
 
-YA-HA!!!<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 6
 
- <ignore_js_op>[12369106992.jpg](forum.php?mod=attachment&aid=Njk1OXwxYmFjZTkxYXwxNjAzODc5MjEyfDE4MjMwfDE5MTE%3D&nothumb=yes) *(193.93 KB, 下載次數: 3)*
+<ignore_js_op>[12369106992.jpg](forum.php?mod=attachment&aid=Njk1OXwxYmFjZTkxYXwxNjAzODc5MjEyfDE4MjMwfDE5MTE%3D&nothumb=yes) *(193.93 KB, 下載次數: 3)*
 
 [下載附件](forum.php?mod=attachment&aid=Njk1OXwxYmFjZTkxYXwxNjAzODc5MjEyfDE4MjMwfDE5MTE%3D&nothumb=yes)
 

@@ -4,7 +4,7 @@
 
 TID：20552
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -202,7 +202,7 @@ TID：20552
 
 2016-2-8 04:02 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -222,7 +222,7 @@ TID：20552
 
 ⑤  探侦ガリレオ（神探伽利略）
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
@@ -240,11 +240,12 @@ TID：20552
 
 2016-8-1 14:35 上傳
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
 > [giantess 發表於 2016-3-13 00:35](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=287072&ptid=20552)
+
 > 原来真不知道，狼魂小娃经过过年历练于沉寂之后，如今终于成长为漫画家了，画风越来越浓烈，而且是无人替代 ...
 
 WOC现在才注意到爵爷惊鸿一瞥……

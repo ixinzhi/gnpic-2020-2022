@@ -4,29 +4,31 @@
 
 TID：29578
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 18号 於 2020-10-5 18:42 編輯*
 
-       一共三个篇章，大概700多张，还剩400张左右没镶字，尽量利用这个假期做完她。
+一共三个篇章，大概700多张，还剩400张左右没镶字，尽量利用这个假期做完她。
 
-      先把做好的第一个篇章发上来，以后会在此主题更新后两个篇章。
+先把做好的第一个篇章发上来，以后会在此主题更新后两个篇章。
 
-      祝大家节日愉快！
-      第三篇章已更新，至此全篇翻译完毕！      谢谢大家的捧场，接下来我要休息一些时间了！
+祝大家节日愉快！
+
+第三篇章已更新，至此全篇翻译完毕！      谢谢大家的捧场，接下来我要休息一些时间了！
 
 [https://pan.baidu.com/s/1JVfRsL8S5-jKi5UH8Etpsw](https://pan.baidu.com/s/1JVfRsL8S5-jKi5UH8Etpsw) 提取码:j2au
 
 [https://pan.baidu.com/s/1EJ1j4rNm6hz1VFM3trsRyQ](https://pan.baidu.com/s/1EJ1j4rNm6hz1VFM3trsRyQ) 提取码:75kn
+
 [https://pan.baidu.com/s/1t5dPQLihiTsUqaElXNnCig](https://pan.baidu.com/s/1t5dPQLihiTsUqaElXNnCig) 提取码:738a
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[Tsd-Ato2A_240.jpg](forum.php?mod=attachment&aid=ODU0MTR8NjYyZWJhOWJ8MTYwMzgxNDgyMXwxODIzMHwyOTU3OA%3D%3D&nothumb=yes) *(333.23 KB, 下載次數: 8)*
+<ignore_js_op>[Tsd-Ato2A_240.jpg](forum.php?mod=attachment&aid=ODU0MTR8NjYyZWJhOWJ8MTYwMzgxNDgyMXwxODIzMHwyOTU3OA%3D%3D&nothumb=yes) *(333.23 KB, 下載次數: 8)*
 
 [下載附件](forum.php?mod=attachment&aid=ODU0MTR8NjYyZWJhOWJ8MTYwMzgxNDgyMXwxODIzMHwyOTU3OA%3D%3D&nothumb=yes)
 
@@ -62,51 +64,60 @@ TID：29578
 
 2020-10-5 18:41 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![tsd-solitude_307.jpg](img/b14fd2aa8e78a20560315099334da396.png "tsd-solitude_307.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![tsd-solitude_307.jpg](img/b14fd2aa8e78a20560315099334da396.png "tsd-solitude_307.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > [Lanclot 發表於 2020-10-2 15:41](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=448847&ptid=29578)
+
 > 所以你是b站那个up嘛，有一个也发了这个翻译
 
 别太当回事朋友，主要还是想让更多人看到这么优秀的作品！
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 4
 
 > [ranadototti 發表於 2020-10-2 15:52](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=448848&ptid=29578)
+
 > 感谢翻译，手机党稍微提个小建议，文件命名的时候能不能从001开始那种 ...
 
 额……抱歉，我并没有考虑这么多，如果要改的话那可能会是一项非常耗时的工作！
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 5
 
-第二篇章已肝完！      <title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+第二篇章已肝完！       
 
 # 6
 
-第三篇章已更新，全篇结束！<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+第三篇章已更新，全篇结束！ 
 
 # 7
 
 > [adsl47535090 發表於 2020-10-3 23:13](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=448962&ptid=29578)
+
 > 为何如此优秀！论坛因你更加出彩！！！！ 欧力给！！！
 
 谢谢你的捧场，好兄弟！
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 8
 
 > [茶道赛高 發表於 2020-10-14 19:44](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=450018&ptid=29578)
+
 > 大佬，b站上那个叁肆七八是不是你，看他好像在用你镶的图发视频
 
 嘘……低调……            
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 9
 
 > [919840297 發表於 2020-10-13 11:44](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=449902&ptid=29578)
+
 > 有没有百度网盘以外的路径呀，进不去百度
 
 为什么进不去?不在国内吗?

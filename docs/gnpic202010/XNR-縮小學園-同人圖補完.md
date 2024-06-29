@@ -4,24 +4,30 @@
 
 TID：7882
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 前言在这里都说清楚了：
+
 [http://giantessnight.com/gnforum ... p;extra=&page=1](http://giantessnight.com/gnforum/viewthread.php?tid=6592&extra=&page=1)
 
 这是上次的作品：
+
 [http://giantessnight.com/gnforum ... p;extra=&page=1](http://giantessnight.com/gnforum/viewthread.php?tid=3222&extra=&page=1)
 
 图片下方的文字是为了避免版权纠纷而写的，内容是：
+
 感谢《缩小学园》制作组创造的伟大作品！在此用我的同人图向你们致敬！
-                               ————来自中国的GTS FANS: XNR
+
+————来自中国的GTS FANS: XNR
 
 日文不是我翻译的，是论坛里的Michael兄帮我翻译的，我还要感谢他呢！
 
 日本GTS文化比中国发达，增加交流只会更好。
+
 -------------------------------------------------------------------------------
+
 以下进入正题：
 
 首先重新加工了一张有“漏洞”的图，这么重要的一块颜色我居然忘了补上，很久以后才发现，看来好图还是需要时间磨炼啊。。。眼睛部分重新加工了下。
@@ -35,6 +41,7 @@ TID：7882
 2010-2-9 19:09 上傳
 
 0
+
 <ignore_js_op>![](img/8632399cf13f0407abfb00adb74e686a.png)
 
 **s0.jpg** *(156.17 KB, 下載次數: 6)*
@@ -54,6 +61,7 @@ TID：7882
 2010-2-9 19:09 上傳
 
 1
+
 <ignore_js_op>![](img/98f3f466b0187e96456190d17966141f.png)
 
 **s1.jpg** *(324.85 KB, 下載次數: 6)*
@@ -73,6 +81,7 @@ TID：7882
 2010-2-9 19:09 上傳
 
 2
+
 <ignore_js_op>![](img/c1f3c2b1e8310d4176b462d5adfa917a.png)
 
 **s2.jpg** *(326.12 KB, 下載次數: 5)*
@@ -102,6 +111,7 @@ TID：7882
 2010-2-9 19:09 上傳
 
 3
+
 <ignore_js_op>![](img/25648420528935ce0cafbf97e87178ba.png)
 
 **s3.jpg** *(110.98 KB, 下載次數: 5)*
@@ -119,6 +129,7 @@ TID：7882
 2010-2-9 19:09 上傳
 
 4
+
 <ignore_js_op>![](img/6b8396720922ac4f7e28d5d233d4eef4.png)
 
 **s4.jpg** *(112.79 KB, 下載次數: 5)*
@@ -138,6 +149,7 @@ TID：7882
 2010-2-9 19:09 上傳
 
 5
+
 <ignore_js_op>![](img/5e6bb4b7f4a90e1ef76566d98ae25acf.png)
 
 **s5.jpg** *(190.8 KB, 下載次數: 5)*
@@ -157,6 +169,7 @@ TID：7882
 2010-2-9 19:09 上傳
 
 6
+
 <ignore_js_op>![](img/473baa377a1673752eef81bf3ebaaf5e.png)
 
 **s6.jpg** *(241.17 KB, 下載次數: 6)*
@@ -166,6 +179,7 @@ TID：7882
 2010-2-9 19:09 上傳
 
 其实到这里图都差不多补完了。
+
 后面手痒，又画了两张POV视角的图，也算是练练笔，好不好大家说了算。
 
 <ignore_js_op>![](img/671e384be25910ac89b9a006f2454bb0.png)
@@ -177,6 +191,7 @@ TID：7882
 2010-2-9 19:09 上傳
 
 7
+
 <ignore_js_op>![](img/841c99e5340ebd23df7c1d544b9b49ec.png)
 
 **s7.jpg** *(248.45 KB, 下載次數: 6)*
@@ -194,6 +209,7 @@ TID：7882
 2010-2-9 19:09 上傳
 
 8
+
 <ignore_js_op>![](img/fd4b92573347421087bf6eb8a2c04894.png)
 
 **s8.jpg** *(319.33 KB, 下載次數: 5)*
@@ -203,8 +219,11 @@ TID：7882
 2010-2-9 19:09 上傳
 
 最后送上一张部长大人征服世界后的图，参考了SS在HIK的同人本当中的一张插画。
+
 一吃，一踩，也符合她身边二人的特点。
+
 9
+
 <ignore_js_op>![](img/4dfd3358229c6b71090a3a3589f96794.png)
 
 **s9.jpg** *(384.93 KB, 下載次數: 12)*
@@ -214,12 +233,15 @@ TID：7882
 2010-2-9 19:09 上傳
 
 顺便求一下HIK的一本同人本，得到越多的作品，我就愈能产生更多的灵感，如果有人肯帮忙，我XNR不胜感激！
+
 [http://giantessnight.com/gnforum ... mp;highlight=%2Bxnr](http://giantessnight.com/gnforum/viewthread.php?tid=3437&highlight=%2Bxnr)
 
 《缩小学园》是一部神作。。。所以我才愿意为它补完这么多插画。
 
 另外说下游戏中几个遗憾的地方：
+
 1\. 在养殖场的女生，成惠去的时候会有她踩踏小虫的一幕，但是缩小后的男主角跑过去却没有任何反应，由于没有其头像，所以我就没画。
+
 <ignore_js_op>![](img/3980e273ab3eaf394018cd47cc414f66.png)
 
 **Snap10.jpg** *(71.58 KB, 下載次數: 1)*
@@ -229,6 +251,7 @@ TID：7882
 2010-2-9 19:09 上傳
 
 2\. 缩小后的男主角还可以跑进商店和售货员对话，bug暂且不说，为什么这一幕没有互动呢？
+
 <ignore_js_op>![](img/f82cbf05baa3ffe61e108ac7ccdc752b.png)
 
 **Snap11.jpg** *(55.67 KB, 下載次數: 1)*
@@ -245,7 +268,7 @@ TID：7882
 
 谢绝灌水，谢绝沙发板凳，每一个回复我都会认真去看的，谢谢大家！
 
-[ *本帖最後由 xnr 於 2010-2-9 19:34 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2010-2-9 19:34 編輯* ] 
 
 # 2
 
@@ -253,11 +276,11 @@ TID：7882
 
 謝絕灌水，每一個回復我都會認真去看的，謝謝大家！
 
-[ *本帖最後由 hubert 於 2010-5-6 02:24 編輯* ]<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 hubert 於 2010-5-6 02:24 編輯* ] 
 
 # 3
 
- <ignore_js_op>[s0o.jpg](forum.php?mod=attachment&aid=MTcxNjF8ZDcwZDg5OTN8MTYwMzg3ODMzNXwxODIzMHw3ODgy&nothumb=yes) *(139.15 KB, 下載次數: 6)*
+<ignore_js_op>[s0o.jpg](forum.php?mod=attachment&aid=MTcxNjF8ZDcwZDg5OTN8MTYwMzg3ODMzNXwxODIzMHw3ODgy&nothumb=yes) *(139.15 KB, 下載次數: 6)*
 
 [下載附件](forum.php?mod=attachment&aid=MTcxNjF8ZDcwZDg5OTN8MTYwMzg3ODMzNXwxODIzMHw3ODgy&nothumb=yes)
 
@@ -317,19 +340,22 @@ TID：7882
 
 2010-2-9 19:13 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![s9o.jpg](img/255d1bfcb9caca7808f05cc0563e390a.png "s9o.jpg")](javascript:;)</ignore_js_op> <title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![s9o.jpg](img/255d1bfcb9caca7808f05cc0563e390a.png "s9o.jpg")](javascript:;)</ignore_js_op>  
 
 # 4
 
 > 原帖由 *zibaobing* 於 2010-2-9 19:29 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=88473&ptid=6598)
+
 > 楼主的日语好棒啊~~
 
-日文不是我翻译的，是论坛里的Michael兄帮我翻译的，我还要感谢他呢！<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+日文不是我翻译的，是论坛里的Michael兄帮我翻译的，我还要感谢他呢！ 
 
 # 5
 
 > 原帖由 *sword0198* 於 2010-2-9 19:45 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=88492&ptid=6598)
+
 > 不错不错，虽然和SS白兔的图风格上有反差，但依然不错
+
 > 尤其是两张鞋底踩踏特写，水准非常之高，可以看出在足部下过很多功夫研究啊
 
 说实在话，我对足部真的没有多少研究，你可以翻翻我以前的作品，跟以前画的效果差不多，只是更加精细了一点罢了。</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

@@ -4,13 +4,14 @@
 
 TID：16492
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 近期做着玩的...DAZ的灯光实在搞不来，poser导到其他地方又太麻烦了...就直接用环境光了╮(╯▽╰)╭大家将就着看看吧~~图片比较大哦
 
 其实...我只是觉得自己权限只有20...很多好东西看不到...想努力拥有权限30_(:3」∠)_.....
+
 <ignore_js_op>![](img/0d2c2d5a01c25c7cd71f6b8a027952dc.png)
 
 **AAA1.png** *(4.84 MB, 下載次數: 83)*
@@ -51,7 +52,7 @@ TID：16492
 
 2014-3-20 00:13 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -159,35 +160,42 @@ TID：16492
 
 2014-3-20 00:20 上傳
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
 > [zxzxucq 發表於 2014-3-20 00:21](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=218429&ptid=16492)
+
 > 爪机看图加载好慢啊。幸苦了
 
 这些图都可以放很大看哦，放大看才带感_(:3」∠)_
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 4
 
 > [awkeygen 發表於 2014-3-20 10:03](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=218441&ptid=16492)
+
 > 不错不错，做得相当不错，比我第一次做的强多了。
+
 > 如果不会打光，可以下载一些自带灯光的场景，网上多得是 ...
 
-自带灯光的场景吗...?我下载下来都是给poser用的，DAZ用了以后灯光非常暗，基本无效果哎...DAZ有全局光的功能吗？一直没发现啊。。。<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+自带灯光的场景吗...?我下载下来都是给poser用的，DAZ用了以后灯光非常暗，基本无效果哎...DAZ有全局光的功能吗？一直没发现啊。。。 
 
 # 5
 
 > [awkeygen 發表於 2014-3-20 10:03](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=218441&ptid=16492)
+
 > 不错不错，做得相当不错，比我第一次做的强多了。
+
 > 如果不会打光，可以下载一些自带灯光的场景，网上多得是 ...
 
-感谢A大的建议呀，我要是能把灯光问题解决...渲染器问题搞定...我一定试着做做剧情~ ，我电脑是笔记本。。你懂得- -...<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+感谢A大的建议呀，我要是能把灯光问题解决...渲染器问题搞定...我一定试着做做剧情~ ，我电脑是笔记本。。你懂得- -... 
 
 # 6
 
 > [Mr丶DerbI 發表於 2014-3-20 06:13](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=218435&ptid=16492)
+
 > 很有感觉的图图片，不知道楼主会不会继续更新，期待足部互动。
 
 额，我不是足控哦，而且现在制图属于新手阶段，，</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

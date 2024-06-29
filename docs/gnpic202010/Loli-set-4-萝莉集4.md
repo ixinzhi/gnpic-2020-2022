@@ -4,7 +4,7 @@
 
 TID：2698
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -20,11 +20,11 @@ Poser L 83-100
 
 YA-HA!!!
 
-[ *本帖最後由 Trayx 於 2009-4-30 16:45 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 Trayx 於 2009-4-30 16:45 編輯* ] 
 
 # 2
 
- <ignore_js_op>[PoserL83.png](forum.php?mod=attachment&aid=ODM0MHw2NWQyM2EzNHwxNjAzODgwNjY1fDE4MjMwfDI2OTg%3D&nothumb=yes) *(99.56 KB, 下載次數: 3)*
+<ignore_js_op>[PoserL83.png](forum.php?mod=attachment&aid=ODM0MHw2NWQyM2EzNHwxNjAzODgwNjY1fDE4MjMwfDI2OTg%3D&nothumb=yes) *(99.56 KB, 下載次數: 3)*
 
 [下載附件](forum.php?mod=attachment&aid=ODM0MHw2NWQyM2EzNHwxNjAzODgwNjY1fDE4MjMwfDI2OTg%3D&nothumb=yes)
 

@@ -4,13 +4,14 @@
 
 TID：26875
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 dronoketer 於 2019-5-18 23:06 編輯*
 
 正如我在[这个](https://giantessnight.com/gnforum2012/forum.php?mod=viewthread&tid=26812&page=1&extra=#pid404281)网页里说的那样，可以使用EC这个软件进行剧场的制作。
+
 <ignore_js_op>![](img/e173b5e5f5b1bc1e09748ab7ec29e060.png)
 
 **QQ截图20190518225657.jpg** *(82.89 KB, 下載次數: 2)*
@@ -22,7 +23,9 @@ TID：26875
 有哥们希望我能够做一个范例性的剧场。
 
 制作用时大概2小时，中间断断续续的。
+
 只是做个效果范例而已，所以剧情简单又俗套………………
+
 没下EC的老爷欣赏下剧情截图好了，以下：
 
 <ignore_js_op>![](img/b3699b58079d0022905bc4883684e73f.png)
@@ -332,6 +335,7 @@ TID：26875
 2019-5-18 22:54 上傳
 
 下面是剧情发布，有EC的姥爷可以把这个剧情塞进去玩玩~体验鼠控舔足~
+
 <ignore_js_op>![](img/021643f377589edd296b397db520fdd9.png)
 
 **风纪委员的惩罚.png** *(4.71 MB, 下載次數: 58)*
@@ -341,18 +345,24 @@ TID：26875
 2019-5-18 22:55 上傳
 
 我只是试做，没有认真做动作和剧情，甚至BGM都没有好好选。
+
 但是大家应该能明显的看出来，这个软件的效果还是不错的。
+
 希望大家能对此有兴趣。
+
 乐意加入基于EC的剧情创作的朋友请加群742075558
+
 742075558！742075558！742075558！
 
-真的希望能有更多人知道这个~</ignore_js_op> <title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+真的希望能有更多人知道这个~</ignore_js_op>  
 
 # 2
 
 好像图片顺序错了，也有的几张没发上来导致逻辑莫名其妙。。。。。。
+
 不过等你下载了EC应该就能明白了xd我不再上传图了
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 3
 

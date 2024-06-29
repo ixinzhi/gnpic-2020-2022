@@ -4,15 +4,18 @@
 
 TID：20632
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 kevinsky05 於 2016-5-20 23:20 編輯*
 
 5月20日更新一幅
+
 想嘗試弄一下放大鏡效果 不過做出來不太滿意就是 還是照發算了![](static/image/smiley/bigface/13.gif)
+
 其實JK手裡拿的是超人 不過扭出來的手感覺不自然就是 ![](static/image/smiley/bigface/36.gif)
+
 <ignore_js_op>![](img/fb62c050c7dbdbf6cbf996037dc8e6b0.png)
 
 **112.jpg** *(1.65 MB, 下載次數: 6)*
@@ -26,11 +29,17 @@ TID：20632
 嘛 因為跟我另一PO沒關係 所以乾脆另開新貼(騙回復?)
 
 最近開始嘗試MEGA系的MMD圖
+
 相關效果加是加了
+
 但渲染的一刻...顯卡當了
+
 ![](static/image/smiley/bigface/13.gif)
+
 所以頭2張只有弱弱的1200X900
+
 而最後是多張圖合成全景圖的(看來做大圖只能從這個方向研究就是)
+
 依舊歡迎各種comment 及MMD討論
 
 <ignore_js_op>![](img/f94b1194f4a2c914ef51625f703a47ed.png)
@@ -73,14 +82,16 @@ TID：20632
 
 2016-2-18 19:05 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > [ww69 發表於 2016-2-18 18:23](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=284766&ptid=20632)
+
 > 求给足部来个特写  表示足控党
 
 這種嗎?
+
 素足的暫時沒辦法 這模沒有自帶素足![](static/image/smiley/bigface/35.gif)
 
 <ignore_js_op>![](img/488767ffe6d496febd2ffcbef3130203.png)
@@ -99,25 +110,30 @@ TID：20632
 
 2016-2-18 19:00 上傳
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
 > [karas 發表於 2016-2-18 23:54](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=284830&ptid=20632)
+
 > 好图  能做动画吗
 
 動畫應該不行了
+
 試過做 但過程實在坑到死OTL
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
 *本帖最後由 kevinsky05 於 2016-5-20 23:20 編輯*
 
 5月20日更新一幅
+
 想嘗試弄一下放大鏡效果 不過做出來不太滿意就是 還是照發算了![](static/image/smiley/bigface/37.gif)
+
 其實JK手裡拿的是超人 不過扭出來的手感覺不自然就是![](static/image/smiley/bigface/13.gif)
+
 <ignore_js_op>![](img/7ed55f1cd7081b83a62db8dce9ad2856.png)
 
 **112.jpg** *(1.65 MB, 下載次數: 6)*

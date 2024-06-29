@@ -4,17 +4,17 @@
 
 TID：22025
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 It has been some time. But I have made quite a few drawings to share over the time I have been gone. So I hope you enjoy them.
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[mariesitting.png](forum.php?mod=attachment&aid=NjUwNjZ8ZmFhM2Q4MTV8MTYwMzg2MDIxMXwxODIzMHwyMjAyNQ%3D%3D&nothumb=yes) *(838.85 KB, 下載次數: 1)*
+<ignore_js_op>[mariesitting.png](forum.php?mod=attachment&aid=NjUwNjZ8ZmFhM2Q4MTV8MTYwMzg2MDIxMXwxODIzMHwyMjAyNQ%3D%3D&nothumb=yes) *(838.85 KB, 下載次數: 1)*
 
 [下載附件](forum.php?mod=attachment&aid=NjUwNjZ8ZmFhM2Q4MTV8MTYwMzg2MDIxMXwxODIzMHwyMjAyNQ%3D%3D&nothumb=yes)
 

@@ -4,7 +4,7 @@
 
 TID：12241
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -24,11 +24,12 @@ TID：12241
 
 （右下角可评分）
 
-[ *本帖最後由 xnr 於 2012-5-4 23:37 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2012-5-4 23:37 編輯* ] 
 
 # 2
 
 > 無間道 發表於 2013-5-12 10:41 [](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=188772&ptid=12241)
+
 > Yooooo梦不错，期待着画个
 
 扶她要吗？</ignore_js_op>

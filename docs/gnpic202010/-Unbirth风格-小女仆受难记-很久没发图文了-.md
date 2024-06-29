@@ -4,11 +4,12 @@
 
 TID：21883
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 毕竟我这种故事风格是少数派麽...所以偶尔发一次图文就好~![](static/image/smiley/bigface/20.gif)
+
 <ignore_js_op>![](img/bb566035a4b781a567b2c4e10ad3e4ef.png)
 
 **HoneyStudio_64 2016-09-27 22-15-44-31.bmp** *(3 MB, 下載次數: 236)*
@@ -377,11 +378,12 @@ TID：21883
 
 2016-9-28 00:44 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > [源青之绅 發表於 2016-9-28 12:51](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=309792&ptid=21883)
+
 > 男主角长得太丑了啦，另外字体有点小
 
 好吧...我以为大家对男主没什么要求呢..所以就去随便网站上找一个凑合一点的就可以了![](static/image/smiley/girl/12.png)</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

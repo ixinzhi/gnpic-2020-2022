@@ -4,7 +4,7 @@
 
 TID：2261
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -16,11 +16,11 @@ TID：2261
 
 日本网站的容量很小，我这里的是原图，图片很大，可以打开来看。。。反正我选的素材应该说都是不错的。。。
 
-[ *本帖最後由 xnr 於 2009-3-10 14:19 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2009-3-10 14:19 編輯* ] 
 
 # 2
 
- <ignore_js_op>[gts-1.jpg](forum.php?mod=attachment&aid=NjgzM3wwZDI1MTViYXwxNjAzODc1MzkzfDE4MjMwfDIyNjE%3D&nothumb=yes) *(593.32 KB, 下載次數: 13)*
+<ignore_js_op>[gts-1.jpg](forum.php?mod=attachment&aid=NjgzM3wwZDI1MTViYXwxNjAzODc1MzkzfDE4MjMwfDIyNjE%3D&nothumb=yes) *(593.32 KB, 下載次數: 13)*
 
 [下載附件](forum.php?mod=attachment&aid=NjgzM3wwZDI1MTViYXwxNjAzODc1MzkzfDE4MjMwfDIyNjE%3D&nothumb=yes)
 
@@ -74,7 +74,7 @@ TID：2261
 
 2009-3-10 14:19 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![gts-9.jpg](static/image/common/none.gif "gts-9.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![gts-9.jpg](static/image/common/none.gif "gts-9.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 

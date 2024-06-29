@@ -4,7 +4,7 @@
 
 TID：17860
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -92,7 +92,7 @@ ilayhu
 
 2014-10-5 05:37 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -170,7 +170,7 @@ ilayhu
 
 2014-10-15 13:20 上傳
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
@@ -182,11 +182,11 @@ ilayhu
 
 謝謝
 
-ilayhu<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ilayhu 
 
 # 4
 
- <ignore_js_op>[giamz-orig-Page_32.jpg](forum.php?mod=attachment&aid=ODQ0NDd8NzJjYTZlMjJ8MTYwMzgyNzE4M3wxODIzMHwxNzg2MA%3D%3D&nothumb=yes) *(251.61 KB, 下載次數: 0)*
+<ignore_js_op>[giamz-orig-Page_32.jpg](forum.php?mod=attachment&aid=ODQ0NDd8NzJjYTZlMjJ8MTYwMzgyNzE4M3wxODIzMHwxNzg2MA%3D%3D&nothumb=yes) *(251.61 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=ODQ0NDd8NzJjYTZlMjJ8MTYwMzgyNzE4M3wxODIzMHwxNzg2MA%3D%3D&nothumb=yes)
 

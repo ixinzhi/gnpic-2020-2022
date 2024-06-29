@@ -4,7 +4,7 @@
 
 TID：8496
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ I made these awhile back. I was really just messing around. But hopefully you al
 
 这回我做了一段时间。我真的只是瞎搞。但希望你都可能在这里找到自己喜欢的东西。
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[kidnap-by-girl1.png](forum.php?mod=attachment&aid=MjE2MjB8MDliN2RhNmJ8MTYwMzg3OTA5NnwxODIzMHw4NDk2&nothumb=yes) *(962.39 KB, 下載次數: 5)*
+<ignore_js_op>[kidnap-by-girl1.png](forum.php?mod=attachment&aid=MjE2MjB8MDliN2RhNmJ8MTYwMzg3OTA5NnwxODIzMHw4NDk2&nothumb=yes) *(962.39 KB, 下載次數: 5)*
 
 [下載附件](forum.php?mod=attachment&aid=MjE2MjB8MDliN2RhNmJ8MTYwMzg3OTA5NnwxODIzMHw4NDk2&nothumb=yes)
 
@@ -114,15 +114,15 @@ YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="s
 
 2010-11-10 12:36 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![captured_by_loli-6.png](img/e193c37a37e1cecb3d4765c7e6f462a8.png "captured_by_loli-6.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![captured_by_loli-6.png](img/e193c37a37e1cecb3d4765c7e6f462a8.png "captured_by_loli-6.png")](javascript:;)</ignore_js_op>  
 
 # 3
 
-more ![](static/image/smiley/bigface/34.gif)<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+more ![](static/image/smiley/bigface/34.gif) 
 
 # 4
 
- <ignore_js_op>[Uh-oh1.png](forum.php?mod=attachment&aid=MjE2MzZ8ZjBiNGZiYTZ8MTYwMzg3OTA5NnwxODIzMHw4NDk2&nothumb=yes) *(315.94 KB, 下載次數: 4)*
+<ignore_js_op>[Uh-oh1.png](forum.php?mod=attachment&aid=MjE2MzZ8ZjBiNGZiYTZ8MTYwMzg3OTA5NnwxODIzMHw4NDk2&nothumb=yes) *(315.94 KB, 下載次數: 4)*
 
 [下載附件](forum.php?mod=attachment&aid=MjE2MzZ8ZjBiNGZiYTZ8MTYwMzg3OTA5NnwxODIzMHw4NDk2&nothumb=yes)
 

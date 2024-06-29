@@ -4,24 +4,29 @@
 
 TID：26384
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 Portals的第3集翻譯，
+
 有興趣的朋友可以去看前面兩集，
+
 原版網址：htt ps://ww w.giantes sfan. com/comics/Port als-3/c=186/
 
 附上預覽圖給大家看看，
+
 這集有吞食的劇情，不喜歡的請斟酌。
+
 希望大家喜歡給個讚或評分，
+
 祝大家新年快樂。
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[17.jpg](forum.php?mod=attachment&aid=NzY0MDh8OTUwNDg3Mzd8MTYwMzg0NjEyMXwxODIzMHwyNjM4NA%3D%3D&nothumb=yes) *(427.28 KB, 下載次數: 23)*
+<ignore_js_op>[17.jpg](forum.php?mod=attachment&aid=NzY0MDh8OTUwNDg3Mzd8MTYwMzg0NjEyMXwxODIzMHwyNjM4NA%3D%3D&nothumb=yes) *(427.28 KB, 下載次數: 23)*
 
 [下載附件](forum.php?mod=attachment&aid=NzY0MDh8OTUwNDg3Mzd8MTYwMzg0NjEyMXwxODIzMHwyNjM4NA%3D%3D&nothumb=yes)
 

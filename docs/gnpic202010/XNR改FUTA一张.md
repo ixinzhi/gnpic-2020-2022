@@ -4,11 +4,12 @@
 
 TID：11884
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 由这张图片改造而来：
+
 [http://giantessnight.com/gnforum ... &extra=page%3D1](http://giantessnight.com/gnforum/viewthread.php?tid=11842&extra=page%3D1)
 
 因为此角色在全职猎人里本来就没说性别，所以很适合改成FUTA

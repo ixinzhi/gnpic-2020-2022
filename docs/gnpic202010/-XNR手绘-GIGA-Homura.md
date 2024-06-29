@@ -4,7 +4,7 @@
 
 TID：15881
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -24,12 +24,14 @@ TID：15881
 
 2014-1-3 01:08 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > qjbwq123 發表於 2014-1-30 15:57 [](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=214465&ptid=15881)
+
 > NICE的homura，lz给了个力
+
 > 手上的？？
 
 那个位置明显就是Tokyo啊</ignore_js_op>

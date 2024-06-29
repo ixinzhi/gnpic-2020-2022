@@ -4,7 +4,7 @@
 
 TID：16078
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -13,6 +13,7 @@ TID：16078
 啥都不擅长好悲伤![](static/image/smiley/bigface/37.gif)P完差不多困了滚去睡觉咯。。。。。
 
 话说小人P的太小了点![](static/image/smiley/bigface/24.gif)不放大可能看不清。。。。。。
+
 <ignore_js_op>![](img/5894236ff4156dd70844896af3a88557.png)
 
 **1 (1).jpg** *(1.89 MB, 下載次數: 34)*

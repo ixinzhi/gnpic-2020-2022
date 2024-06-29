@@ -4,13 +4,14 @@
 
 TID：12429
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 终于改完了，整个人都有点精神恍惚了。。。
 
 由上一张图改造而来：
+
 [http://giantessnight.com/gnforum ... &extra=page%3D1](http://giantessnight.com/gnforum/viewthread.php?tid=12389&extra=page%3D1)
 
 同时也顺便改善了原图的很多细节，采用了部分新的技术，努力增强肉体的质感。
@@ -41,15 +42,17 @@ TID：12429
 
 最后再次希望有人能超越我的红利点，一起加油吧！
 
-[ *本帖最後由 xnr 於 2012-6-4 20:23 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2012-6-4 20:23 編輯* ] 
 
 # 2
 
 > 原帖由 *Dante* 於 2012-6-3 22:01 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=165805&ptid=12429)
+
 > .
+
 > 表情不錯，眼睛的畫法感覺超複雜的，但是效果看來很好。
 
-其实眼睛画起来超简单，三个图层而已。<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+其实眼睛画起来超简单，三个图层而已。 
 
 # 3
 

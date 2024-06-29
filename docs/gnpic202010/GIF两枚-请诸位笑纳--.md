@@ -4,7 +4,7 @@
 
 TID：16365
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -32,14 +32,16 @@ ps：拿来参赛的温柔系文章recollect没能写完，原因很多吧，一
 
 2014-3-1 21:39 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 *本帖最後由 这茶，是苦的 於 2014-3-8 09:51 編輯*
 
 > [jx3132 發表於 2014-3-2 18:39](http://www.giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=217302&ptid=16365)
+
 > 楼主能否把模型分享出来
+
 > 求模型
 
 [http://seiga.nicovideo.jp/seiga/im3671521](http://seiga.nicovideo.jp/seiga/im3671521)

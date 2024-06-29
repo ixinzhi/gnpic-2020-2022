@@ -4,17 +4,19 @@
 
 TID：26129
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 淺水了好幾年，感謝各位先進不時分享好東西所以翻譯了一個漫畫跟大家分享請大家多多指教這是在 Giantess Fan Comic 上看到的一篇漫畫
+
 原文網址：http s:// ww w.gi a ntes sfa n.c om /co mics/Fit ting-In/c=175/有興趣的可以上去看原版喔！附上預覽圖
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[11.jpg](forum.php?mod=attachment&aid=NzU2NTJ8YTUwNmI4Njh8MTYwMzg0MDU3OHwxODIzMHwyNjEyOQ%3D%3D&nothumb=yes) *(369.36 KB, 下載次數: 20)*
+<ignore_js_op>[11.jpg](forum.php?mod=attachment&aid=NzU2NTJ8YTUwNmI4Njh8MTYwMzg0MDU3OHwxODIzMHwyNjEyOQ%3D%3D&nothumb=yes) *(369.36 KB, 下載次數: 20)*
 
 [下載附件](forum.php?mod=attachment&aid=NzU2NTJ8YTUwNmI4Njh8MTYwMzg0MDU3OHwxODIzMHwyNjEyOQ%3D%3D&nothumb=yes)
 

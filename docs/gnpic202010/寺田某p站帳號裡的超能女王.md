@@ -4,24 +4,29 @@
 
 TID：14084
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本文章最後由 killer9999 於 2013-3-10 17:00 編輯*
 
 其實寺田在p站有個長年沒更新的帳號 要加他mypick才能看到裡面的圖
+
 好消息是: 裡面有乳有陰有futa有vore有妄想文!
+
 而壞消息是: 裡面九成都是超能女王!
+
 我第三代的主力部隊就數她第二啊啊啊啊(
 
 嗯所以把妄想文翻譯後鑲嵌了進圖裡 就這樣
+
 依照慣例,futa部分要收錢作為給露西法的貢品(
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[garde6_t.jpg](forum.php?mod=attachment&aid=MzMzOTR8NGIzMDdjMzZ8MTYwMzg0MjU4MXwxODIzMHwxNDA4NA%3D%3D&nothumb=yes) *(3.15 MB, 下載次數: 726)*
+<ignore_js_op>[garde6_t.jpg](forum.php?mod=attachment&aid=MzMzOTR8NGIzMDdjMzZ8MTYwMzg0MjU4MXwxODIzMHwxNDA4NA%3D%3D&nothumb=yes) *(3.15 MB, 下載次數: 726)*
 
 [下載附件](forum.php?mod=attachment&aid=MzMzOTR8NGIzMDdjMzZ8MTYwMzg0MjU4MXwxODIzMHwxNDA4NA%3D%3D&nothumb=yes)
 

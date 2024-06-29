@@ -4,20 +4,23 @@
 
 TID：21801
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 hsxz 於 2016-9-14 22:12 編輯*
 
 **【1L已满，更新在2楼】7妹mod**（缺头发mod）
+
 优势很明显在于光影，然而没有大的地图还是个很大的问题，现在只能等之后的dlc了
+
 这是我随便做的一张
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[Y0]Q8`QVNC~W@H9I(@OKZEO.png](forum.php?mod=attachment&aid=NjQwNDV8MmUwMGNmNDJ8MTYwMzg1NzY3MXwxODIzMHwyMTgwMQ%3D%3D&nothumb=yes) *(1.15 MB, 下載次數: 102)*
+<ignore_js_op>[Y0]Q8`QVNC~W@H9I(@OKZEO.png](forum.php?mod=attachment&aid=NjQwNDV8MmUwMGNmNDJ8MTYwMzg1NzY3MXwxODIzMHwyMTgwMQ%3D%3D&nothumb=yes) *(1.15 MB, 下載次數: 102)*
 
 [下載附件](forum.php?mod=attachment&aid=NjQwNDV8MmUwMGNmNDJ8MTYwMzg1NzY3MXwxODIzMHwyMTgwMQ%3D%3D&nothumb=yes)
 
@@ -53,18 +56,19 @@ TID：21801
 
 2016-9-14 21:57 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![2.png](img/a112097602cd2f22b24e3a900e0b722b.png "2.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![2.png](img/a112097602cd2f22b24e3a900e0b722b.png "2.png")](javascript:;)</ignore_js_op>  
 
 # 3
 
 *本帖最後由 hsxz 於 2016-9-11 13:32 編輯*
 
 以后将在2楼更新
-唯一的问题就是没有好的地图。。<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+唯一的问题就是没有好的地图。。 
 
 # 4
 
- <ignore_js_op>[)CP7V(L}3C`Z5GG}W[_OB%U.png](forum.php?mod=attachment&aid=NjQwNDZ8MTA5NjI0MWR8MTYwMzg1NzY3MXwxODIzMHwyMTgwMQ%3D%3D&nothumb=yes) *(2.57 MB, 下載次數: 19)*
+<ignore_js_op>[)CP7V(L}3C`Z5GG}W[_OB%U.png](forum.php?mod=attachment&aid=NjQwNDZ8MTA5NjI0MWR8MTYwMzg1NzY3MXwxODIzMHwyMTgwMQ%3D%3D&nothumb=yes) *(2.57 MB, 下載次數: 19)*
 
 [下載附件](forum.php?mod=attachment&aid=NjQwNDZ8MTA5NjI0MWR8MTYwMzg1NzY3MXwxODIzMHwyMTgwMQ%3D%3D&nothumb=yes)
 
@@ -94,71 +98,84 @@ TID：21801
 
 2016-9-11 13:31 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![3.jpg](img/9512a6ecb9b1a6caf15870049f042b0e.png "3.jpg")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![3.jpg](img/9512a6ecb9b1a6caf15870049f042b0e.png "3.jpg")](javascript:;)</ignore_js_op>  
 
 # 5
 
 > [qq1353856991 發表於 2016-9-10 21:41](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=308100&ptid=21801)
+
 > 能想办法翻墙后上传百度云吗，我有链接，但是没有稳定的vpn
 
 你下个mega下载器，就能下了。
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 6
 
 > [？：｜（！ 發表於 2016-9-11 10:22](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=308156&ptid=21801)
+
 > 感觉我家电脑根本跑不起来。。。
 
 如果跑得动前作的话，这个应该没问题，前作更卡
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 7
 
-我把几张红蓝3d放上来了，在2楼<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+我把几张红蓝3d放上来了，在2楼 
 
 # 8
 
 > [dfggggx 發表於 2016-9-11 20:48](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=308213&ptid=21801)
+
 > vr设备对于已经工作好几年的人来说，1万多实现自己多年以来的梦想其实并不贵，关键是这个能不能达到让人觉 ...
 
 。。。。这就是你的梦想了吗。。。。
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 9
 
 *本帖最後由 hsxz 於 2016-9-13 22:50 編輯*
 
-新图已上传**【在1L】**，虽然没假发mod，但服装还是不错的。等大地图mod，不知道会不会出。<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+新图已上传**【在1L】**，虽然没假发mod，但服装还是不错的。等大地图mod，不知道会不会出。 
 
 # 10
 
 > [(12345) 發表於 2016-9-14 21:06](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=308480&ptid=21801)
+
 > 也就是说目前只支持摄影模式巨大化？
 
 不，只是模型改完后不能在当作人物模型读取，普通模式还是可以通过修改器改的
-<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 11
 
 > [(12345) 發表於 2016-9-14 23:31](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=308503&ptid=21801)
+
 > =0=使用什么修改器呢？
 
 老师说现在这个修改器没什么用，除非你是做mod的
+
 一定要的话，明天给你
 
-<title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 12
 
 > [(12345) 發表於 2016-9-14 23:31](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=308503&ptid=21801)
+
 > =0=使用什么修改器呢？
 
-咳咳，是老实说。。。。。<title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+咳咳，是老实说。。。。。 
 
 # 13
 
 > [(12345) 發表於 2016-9-15 07:36](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=308522&ptid=21801)
+
 > 游戏本身自带修改大小就好了~
+
 > 但是我还没下载好……
 
 自带的说。。。。。。。。。。。。。。。。。。。。

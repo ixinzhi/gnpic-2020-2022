@@ -4,7 +4,7 @@
 
 TID：12449
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -25,7 +25,9 @@ TID：12449
 2012-6-9 04:55 上傳
 
 （無限拳？違。）
+
 （正解：無限蔥！）
+
 <ignore_js_op>![](img/6b13111a8f09b6e78deaba980664f28f.png)
 
 **無限拳2.jpg** *(75.51 KB, 下載次數: 0)*
@@ -43,7 +45,9 @@ TID：12449
 2012-6-9 05:11 上傳
 
 （伸！）
+
 （－－く－く－く－く－く－く－く）
+
 <ignore_js_op>![](img/d37db4df2b92b2a824c858623a6b9f7e.png)
 
 **無限拳4.jpg** *(193.16 KB, 下載次數: 0)*
@@ -93,19 +97,23 @@ TID：12449
 2012-6-9 05:13 上傳
 
 ＝＝＝＝＝＝＝＝＝====================
+
 由於應急,無限蔥是用半小時趕造,沒有來得及(麻煩)上骨,所以是沒法扭曲,不然一幕景是反彈
 
 老樣子不想上特效(奇煩),但上了後,胸的陰影會更明顯
 
-[ *本帖最後由 ckw 於 2012-6-10 00:42 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 ckw 於 2012-6-10 00:42 編輯* ] 
 
 # 2
 
 > 原帖由 *nijack89* 於 2012-6-9 11:17 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=166066&ptid=12449)
+
 > 不錯的圖呢
+
 > 要是能同時讓兩位GTS出現在圖上會更好
 
 > 原帖由 *xnr* 於 2012-6-9 11:20 發表 [](http://giantessnight.com/gnforum/redirect.php?goto=findpost&pid=166067&ptid=12449)
+
 > 两个GTS体形一大一小？希望能看到更多截图，最好是有对比的，有落差的，POV第一人称视角的，谢谢。
 
 全景=鏡頭外的事物會穿崩wwww</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

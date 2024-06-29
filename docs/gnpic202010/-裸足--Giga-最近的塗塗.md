@@ -4,13 +4,14 @@
 
 TID：22470
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 迷途小喵 於 2018-2-1 11:38 編輯*
 
 遊戲封面的徵稿
+
 <ignore_js_op>![](img/3b834ba1d5eb5c6927b9cca01d6fd0dc.png)
 
 **sizebox splash screen.jpg** *(801.97 KB, 下載次數: 1)*

@@ -4,7 +4,7 @@
 
 TID：5409
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ This is just a little something I did. I used 3d Custom Girl, Poser 7, and Photo
 
 这只是一个小东西我没有。我用三维自定义女孩，波塞尔7和Photoshop把它们组合在一起。享受！
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[Loli-sm-1.jpg](forum.php?mod=attachment&aid=MTQzNzJ8YWZkMTY2YWN8MTYwMzg3MTk4MXwxODIzMHw1NDA5&nothumb=yes) *(375.04 KB, 下載次數: 26)*
+<ignore_js_op>[Loli-sm-1.jpg](forum.php?mod=attachment&aid=MTQzNzJ8YWZkMTY2YWN8MTYwMzg3MTk4MXwxODIzMHw1NDA5&nothumb=yes) *(375.04 KB, 下載次數: 26)*
 
 [下載附件](forum.php?mod=attachment&aid=MTQzNzJ8YWZkMTY2YWN8MTYwMzg3MTk4MXwxODIzMHw1NDA5&nothumb=yes)
 

@@ -4,7 +4,7 @@
 
 TID：9168
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -16,11 +16,11 @@ I decided to do this last one before I work on another poser movie. And what bet
 
 YA-HA!!!
 
-http://www.megaupload.com/?d=WXZ6B26Z<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+http://www.megaupload.com/?d=WXZ6B26Z 
 
 # 2
 
- <ignore_js_op>[vlcsnap-33106.png](forum.php?mod=attachment&aid=MTQzNzB8NjRlMTA2ZjR8MTYwMzg4MTUxMnwxODIzMHw5MTY4&nothumb=yes) *(183.37 KB, 下載次數: 10)*
+<ignore_js_op>[vlcsnap-33106.png](forum.php?mod=attachment&aid=MTQzNzB8NjRlMTA2ZjR8MTYwMzg4MTUxMnwxODIzMHw5MTY4&nothumb=yes) *(183.37 KB, 下載次數: 10)*
 
 [下載附件](forum.php?mod=attachment&aid=MTQzNzB8NjRlMTA2ZjR8MTYwMzg4MTUxMnwxODIzMHw5MTY4&nothumb=yes)
 

@@ -4,15 +4,15 @@
 
 TID：15724
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-还是新手阶段，抠图和布局都不怎么好。<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+还是新手阶段，抠图和布局都不怎么好。 
 
 # 2
 
- <ignore_js_op>[81_副本.jpg](forum.php?mod=attachment&aid=Mzg2MzR8NGJjMzkwNjV8MTYwMzg3MjE5NnwxODIzMHwxNTcyNA%3D%3D&nothumb=yes) *(33.38 KB, 下載次數: 29)*
+<ignore_js_op>[81_副本.jpg](forum.php?mod=attachment&aid=Mzg2MzR8NGJjMzkwNjV8MTYwMzg3MjE5NnwxODIzMHwxNTcyNA%3D%3D&nothumb=yes) *(33.38 KB, 下載次數: 29)*
 
 [下載附件](forum.php?mod=attachment&aid=Mzg2MzR8NGJjMzkwNjV8MTYwMzg3MjE5NnwxODIzMHwxNTcyNA%3D%3D&nothumb=yes)
 

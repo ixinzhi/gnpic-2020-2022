@@ -4,36 +4,39 @@
 
 TID：15479
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本文章最後由 asd852020 於 2013-11-3 15:53 編輯*
 
 嗯~本人PS新手上路...拿幾張漫畫P的
-技術不太好(請見諒)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+技術不太好(請見諒) 
 
 # 2
 
- <ignore_js_op>[初號作.jpg](forum.php?mod=attachment&aid=MzczOTl8NGMxYzMxZjh8MTYwMzg3MjIyMHwxODIzMHwxNTQ3OQ%3D%3D&nothumb=yes) *(731 KB, 下載次數: 22)*
+<ignore_js_op>[初號作.jpg](forum.php?mod=attachment&aid=MzczOTl8NGMxYzMxZjh8MTYwMzg3MjIyMHwxODIzMHwxNTQ3OQ%3D%3D&nothumb=yes) *(731 KB, 下載次數: 22)*
 
 [下載附件](forum.php?mod=attachment&aid=MzczOTl8NGMxYzMxZjh8MTYwMzg3MjIyMHwxODIzMHwxNTQ3OQ%3D%3D&nothumb=yes)
 
 2013-11-2 19:41 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![初號作.jpg](img/3032bdbca03ad0be9b3eb55013c3787c.png "初號作.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![初號作.jpg](img/3032bdbca03ad0be9b3eb55013c3787c.png "初號作.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 趁空閒的時候做了三張...
+
 三號的雲朵有點悲劇 四號好像沒什麼立體感 = =
+
 有誰可以教我P初一點陰影~(哭~)
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
- <ignore_js_op>[2號.jpg](forum.php?mod=attachment&aid=Mzc0MzR8MTJhNWMzY2R8MTYwMzg3MjIyMHwxODIzMHwxNTQ3OQ%3D%3D&nothumb=yes) *(214.12 KB, 下載次數: 0)*
+<ignore_js_op>[2號.jpg](forum.php?mod=attachment&aid=Mzc0MzR8MTJhNWMzY2R8MTYwMzg3MjIyMHwxODIzMHwxNTQ3OQ%3D%3D&nothumb=yes) *(214.12 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=Mzc0MzR8MTJhNWMzY2R8MTYwMzg3MjIyMHwxODIzMHwxNTQ3OQ%3D%3D&nothumb=yes)
 

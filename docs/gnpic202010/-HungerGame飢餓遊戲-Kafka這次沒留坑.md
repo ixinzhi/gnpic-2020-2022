@@ -4,24 +4,31 @@
 
 TID：13203
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本文章最後由 kunoichi99 於 2012-9-1 21:31 編輯*
 
 慶祝新論壇開放ヽ(≧Д≦)ノ（撒花）
+
 新站的頁面好綺麗~好喜歡~
+
 前陣子看了JK女子攻兵之後忽然被燃到了，所以又趕著開學前急匆匆畫了10頁的小故事
+
 ————如果飢餓遊戲中的補給品里有一片可以讓人變大的藥丸的話————
+
 飢餓遊戲就變成女主角一個人的屠殺遊戲啦（≧▼≦；)
+
 因為只看過電影還沒來得及讀原著，如果有飢餓遊戲的粉，還請以寬容的心態看待這個小故事
+
 畢竟和同人作品認真……嘛你就輸了啦~
-好久不畫手生了，前幾頁有點兒草。。各位看官請多擔待 <title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+好久不畫手生了，前幾頁有點兒草。。各位看官請多擔待  
 
 # 2
 
- <ignore_js_op>[0.jpg](forum.php?mod=attachment&aid=MzA2MzN8OGI4ODBlODR8MTYwMzg3MDgwM3wxODIzMHwxMzIwMw%3D%3D&nothumb=yes) *(214.44 KB, 下載次數: 206)*
+<ignore_js_op>[0.jpg](forum.php?mod=attachment&aid=MzA2MzN8OGI4ODBlODR8MTYwMzg3MDgwM3wxODIzMHwxMzIwMw%3D%3D&nothumb=yes) *(214.44 KB, 下載次數: 206)*
 
 [下載附件](forum.php?mod=attachment&aid=MzA2MzN8OGI4ODBlODR8MTYwMzg3MDgwM3wxODIzMHwxMzIwMw%3D%3D&nothumb=yes)
 
@@ -87,9 +94,10 @@ TID：13203
 
 2012-9-1 21:31 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![10.jpg](img/f8ed38b38c976787c1e8e2da7cf42221.png "10.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![10.jpg](img/f8ed38b38c976787c1e8e2da7cf42221.png "10.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 说来惭愧这个封皮本来是前阵子想画点儿进击的巨人的同人的。。
+
 后来因为那部漫画的画风实在难模仿就此作罢了，然后现在被拿来改成了这篇（-w-）还好没有违和感~

@@ -4,7 +4,7 @@
 
 TID：17625
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -60,24 +60,28 @@ TID：17625
 
 全是1920*1080大图，壁纸大小。
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 *本帖最後由 冰西瓜 於 2014-8-22 22:20 編輯*
 
 > [十六夜咲月 發表於 2014-8-22 22:08](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=232623&ptid=17625)
+
 > ……冰西瓜，回群里我就砍了你啊！居然敢欺负我的芙兰大人！
+
 > ……虽然很不甘心，但是做的还不错…… ...
 
 想到帽子擦脚很带感，就有了这幅作品。
+
 其实当时选芙兰只是因为帽子和表情丰富这2条，如果有一个男性的好用的角色会更好的。
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
 > [GhostButterfly 發表於 2014-8-23 07:27](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=232651&ptid=17625)
+
 > 萝莉控的西瓜居然mini属性。。。   喂喂喂还能不能愉快的玩耍了如果能做成视频就好了〒_〒，单看mmd怎么说 ...
 
 这种一只脚把小人的脸踩扁的大小很带感，总之感谢支持。</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

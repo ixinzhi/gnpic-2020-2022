@@ -4,7 +4,7 @@
 
 TID：26356
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -128,7 +128,7 @@ TID：26356
 
 2019-1-30 09:24 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 

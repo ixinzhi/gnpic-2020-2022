@@ -4,22 +4,25 @@
 
 TID：19963
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 aabbccdd 於 2015-10-18 12:18 編輯*
 
 首先开始的开始先要谢谢[@ww69](https://giantessnight.com/gnforum2012/home.php?mod=space&uid=14152) 大大在游戏区发的帖子，安利了这么棒的游戏，谢谢大大！![](static/image/smiley/bigface/12.gif)
+
 然后呢，惊讶的发现这款I社的作品简直太棒了！![](static/image/smiley/bigface/11.gif)
+
 画面美，操作简单，相比使用poser有许多方便的地方！![](static/image/smiley/bigface/28.gif)
+
 那么，废话不多说，放图引狼![](static/image/smiley/bigface/5.gif)（有些图单纯卖肉，勿怪![](static/image/smiley/bigface/18.gif)）
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[PlayClubStudio 2015-10-18 11-18-35.png](forum.php?mod=attachment&aid=NTQ5NDJ8ZDJkMjQ2OWZ8MTYwMzg2Mzc0NnwxODIzMHwxOTk2Mw%3D%3D&nothumb=yes) *(1.02 MB, 下載次數: 65)*
+<ignore_js_op>[PlayClubStudio 2015-10-18 11-18-35.png](forum.php?mod=attachment&aid=NTQ5NDJ8ZDJkMjQ2OWZ8MTYwMzg2Mzc0NnwxODIzMHwxOTk2Mw%3D%3D&nothumb=yes) *(1.02 MB, 下載次數: 65)*
 
 [下載附件](forum.php?mod=attachment&aid=NTQ5NDJ8ZDJkMjQ2OWZ8MTYwMzg2Mzc0NnwxODIzMHwxOTk2Mw%3D%3D&nothumb=yes)
 
@@ -73,11 +76,12 @@ TID：19963
 
 2015-10-18 12:18 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![PlayClubStudio 2015-10-18 11-53-53.png](img/5bb92b992811c18b7543a59cc31f4a8a.png "PlayClubStudio 2015-10-18 11-53-53.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![PlayClubStudio 2015-10-18 11-53-53.png](img/5bb92b992811c18b7543a59cc31f4a8a.png "PlayClubStudio 2015-10-18 11-53-53.png")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > [六六 發表於 2015-10-30 10:21](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=273198&ptid=19963)
+
 > lz能否把lz自己的上传一下我下载的studio里没有任何场景 什么都没有，一片黑啊。。。。 ...
 
 那是因为没有注册好的缘故吧，推荐您看一下这个帖子[http://tieba.baidu.com/p/4008736895](http://tieba.baidu.com/p/4008736895)，里面会教怎么解决。实在无法解决的话再私戳我吧~

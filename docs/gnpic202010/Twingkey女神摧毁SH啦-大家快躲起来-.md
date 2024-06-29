@@ -4,7 +4,7 @@
 
 TID：4678
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -28,11 +28,11 @@ TID：4678
 
 我允许你们尽情地尖叫~因为这是你们最后一次尖叫了~
 
-[ *本帖最後由 yakata 於 2009-9-12 17:04 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 yakata 於 2009-9-12 17:04 編輯* ] 
 
 # 2
 
-那个，那个…… 我站到塔下面，躲起来……![](static/image/smiley/bigface/6.gif)<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+那个，那个…… 我站到塔下面，躲起来……![](static/image/smiley/bigface/6.gif) 
 
 # 3
 

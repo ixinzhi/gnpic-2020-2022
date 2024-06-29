@@ -4,7 +4,7 @@
 
 TID：21691
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -15,6 +15,7 @@ TID：21691
 毕竟文章不是自己写的，还是征求一下[@流浪人](https://giantessnight.com/gnforum2012/home.php?mod=space&uid=4910)  的意见吧。我可以在这里发吗？会对文章内容和风格做一些小修改。
 
 先把人设放上：
+
 <ignore_js_op>![](img/d6d0ab5c3c6422a3e731e95b7ba05801.png)
 
 **2016_0812_08_58_12_830.png** *(426.91 KB, 下載次數: 0)*

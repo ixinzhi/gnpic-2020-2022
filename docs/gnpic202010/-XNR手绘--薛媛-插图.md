@@ -4,7 +4,7 @@
 
 TID：24969
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -38,21 +38,26 @@ TID：24969
 
 2018-4-21 22:54 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > [高辰123 發表於 2018-4-22 01:35](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=370109&ptid=24969)
+
 > lz的画功真好，可惜lz没再填坑了，
 
 。。。。。。。。。哪个坑？？？？
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 3
 
 > [年轻即装逼 發表於 2018-4-22 02:24](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=370112&ptid=24969)
+
 > 嗯，或许用3D会更好些？这样的妹子感觉有种视觉疲劳，不过还是要支持下楼主的~ ...
 
 用什么3D模型？
+
 3D模型不会视觉疲劳？
+
 3D模型会最终取代手绘？</ignore_js_op></ignore_js_op></ignore_js_op>

@@ -4,12 +4,14 @@
 
 TID：14750
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 嗯，應昨日要求製作出裸足的圖片，嗯，比起昨天偷懶的今天的應該略好吧，畢竟多加了些東西嘛=-=
+
 嗯，發完我繼續去玩遊戲，揚帆起航~
+
 <ignore_js_op>![](img/84edb344323d7c98af15b8cb70099e62.png)
 
 **B%WBER%4Q}K6E]L_``53332.jpg** *(48.39 KB, 下載次數: 6)*

@@ -4,11 +4,12 @@
 
 TID：5729
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 Hello, thanks for the welcome, here I am posting now some of my promotional works, hope somebody can tranlate for the people, I'll be posting more later, thanks...
+
 Comments are welcome
 
 Ilayhu ![](static/image/smiley/bigface/30.gif)
@@ -16,15 +17,16 @@ Ilayhu ![](static/image/smiley/bigface/30.gif)
 (using google translator)
 
 您好，感謝您的歡迎，我在這裡張貼現在我的一些宣傳工作，希望有人能tranlate為人民，我會更晚些時候發布，感謝...
+
 歡迎評論
 
 Ilayhu ![](static/image/smiley/bigface/30.gif)
 
-[ *本帖最後由 lovegts 於 2009-11-16 10:20 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 lovegts 於 2009-11-16 10:20 編輯* ] 
 
 # 2
 
- <ignore_js_op>[ch005 copy.jpg](forum.php?mod=attachment&aid=MTUwOTF8ODNmMDA4YTF8MTYwMzg4MTQwMHwxODIzMHw1NzI5&nothumb=yes) *(194.07 KB, 下載次數: 14)*
+<ignore_js_op>[ch005 copy.jpg](forum.php?mod=attachment&aid=MTUwOTF8ODNmMDA4YTF8MTYwMzg4MTQwMHwxODIzMHw1NzI5&nothumb=yes) *(194.07 KB, 下載次數: 14)*
 
 [下載附件](forum.php?mod=attachment&aid=MTUwOTF8ODNmMDA4YTF8MTYwMzg4MTQwMHwxODIzMHw1NzI5&nothumb=yes)
 
@@ -84,7 +86,7 @@ Ilayhu ![](static/image/smiley/bigface/30.gif)
 
 2009-11-16 09:31 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![ch045 copy.jpg](static/image/common/none.gif "ch045 copy.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![ch045 copy.jpg](static/image/common/none.gif "ch045 copy.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 

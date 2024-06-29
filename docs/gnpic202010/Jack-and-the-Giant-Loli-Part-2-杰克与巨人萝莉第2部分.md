@@ -4,7 +4,7 @@
 
 TID：5594
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ Here is the next part. Enjoy
 
 这里是下一部分。享受
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[Jack-and-the-Giant-loli-11.png](forum.php?mod=attachment&aid=MTQ3NTF8OTRkMmJlYTB8MTYwMzg4MTQ4NnwxODIzMHw1NTk0&nothumb=yes) *(481.17 KB, 下載次數: 5)*
+<ignore_js_op>[Jack-and-the-Giant-loli-11.png](forum.php?mod=attachment&aid=MTQ3NTF8OTRkMmJlYTB8MTYwMzg4MTQ4NnwxODIzMHw1NTk0&nothumb=yes) *(481.17 KB, 下載次數: 5)*
 
 [下載附件](forum.php?mod=attachment&aid=MTQ3NTF8OTRkMmJlYTB8MTYwMzg4MTQ4NnwxODIzMHw1NTk0&nothumb=yes)
 

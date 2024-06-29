@@ -4,18 +4,24 @@
 
 TID：26629
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 闲余ノ 於 2019-4-23 14:35 編輯*
 
 **作者uru**
+
 **来源 size matter**
+
 **我是pop子的朋友夹心酱**，**是的(⊙﹏⊙) 我又开新坑了**![](static/image/smiley/girl/08.png)
+
 **这次应该只会做比较长的cg，单张后来我想了想感觉没啥意义，（主要我要玩n遍游戏，死的我很难受）****（啊，只狼的话另说）****故事的长些的ojbk，**
+
 **还有如果要转载我翻译的其他作品请联系我，不要乱传e-hentai，**
+
 **不然我就……**
+
 **原地爆炸** <ignore_js_op>![](img/0d701212df2a6e1e487970fb72699500.png)
 
 **下载.jpg** *(11.45 KB, 下載次數: 0)*
@@ -25,6 +31,7 @@ TID：26629
 2019-3-27 00:33 上傳
 
 **蛋糕事件一件打包链接：[https://share.weiyun.com/5HIEO4N](https://share.weiyun.com/5HIEO4N)**
+
 **密码：aHwLQ1**
 
 **解压密码：xianyuc** **下面正文**
@@ -112,6 +119,7 @@ TID：26629
 2019-3-27 19:46 上傳
 
 **屁股篇**
+
 <ignore_js_op>![](img/91c618b253bb03825f2eb27149231bb4.png)
 
 **10.jpg** *(487.38 KB, 下載次數: 29)*
@@ -147,6 +155,7 @@ TID：26629
 **这里因为作者也没更，没后续了**
 
 **阴道篇**
+
 <ignore_js_op>![](img/74fb1d089527b65b4089d3deb96784fb.png)
 
 **14.jpg** *(540.31 KB, 下載次數: 31)*
@@ -220,6 +229,7 @@ TID：26629
 2019-3-27 19:48 上傳
 
 **接下来是魔王女仆对话剧情 因为图片没有，脑补吧**
+
 <ignore_js_op>![](img/584c5c26b30f51bdf78657de6c36557a.png)
 
 **23.jpg** *(93.33 KB, 下載次數: 15)*
@@ -252,28 +262,34 @@ TID：26629
 
 2019-3-27 00:45 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 *本帖最後由 闲余ノ 於 2019-3-29 15:30 編輯*
 
 > [xxx99 發表於 2019-3-29 08:07](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=401339&ptid=26629)
+
 > 想問問這遊戲劇情是什麽
+
 > 魔王也是女性嗎？
+
 > 這個圖上的女生和男主勇者是什麽關係？
 
 魔王是妹子，剧情就是魔王抢走了女神的神器，摧毁了男主的小人世界，杀死了男主，然后女神把他复活，（这时候女神已经失去力量），然后二人一起去巨人世界找魔王，抢神器，打魔王。也没啥深度剧情，因为是小黄油![](static/image/smiley/girl/26.png)
+
 论坛也有中文版，我这个只是图片化了。
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
 *本帖最後由 闲余ノ 於 2019-4-2 14:32 編輯*
 
 **脚部护理事件**
+
 **只有好结局**
+
 <ignore_js_op>![](img/39252e9243e4f2404b3363830eda1b1b.png)
 
 **01.jpg** *(91.69 KB, 下載次數: 22)*
@@ -338,24 +354,29 @@ TID：26629
 
 2019-4-1 19:25 上傳
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
 *本帖最後由 闲余ノ 於 2019-4-1 19:45 編輯*
 
 > [xxx99 發表於 2019-3-29 21:24](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=401403&ptid=26629)
+
 > 本身男主所在的世界就是小人嗎？
+
 > 圖上失去力量的女神和男主旅行的時候是一樣大小的小人嗎？
+
 > 然後又學習了 ...
 
 是小人，
+
 没错,但是有变大药水，对小人无效。（因为顶不住）就是那种玄幻小说暴体而亡的那种感觉
 
 没错。
+
 完了![](static/image/smiley/girl/02.png)
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 
@@ -443,13 +464,14 @@ TID：26629
 
 2019-4-23 14:33 上傳
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
 *本帖最後由 闲余ノ 於 2019-4-23 17:27 編輯*
 
 **清扫城市事件**
+
 <ignore_js_op>![](img/0c72bfff149bb2009759b20084075bbc.png)
 
 **前言.jpg** *(195.23 KB, 下載次數: 37)*
@@ -514,11 +536,11 @@ TID：26629
 
 2019-4-23 17:22 上傳
 
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 7
 
- <ignore_js_op>[jojo.jpg](forum.php?mod=attachment&aid=Nzc5MDZ8MDJkZGFjZGV8MTYwMzgzNDc2MHwxODIzMHwyNjYyOQ%3D%3D&nothumb=yes) *(46.32 KB, 下載次數: 2)*
+<ignore_js_op>[jojo.jpg](forum.php?mod=attachment&aid=Nzc5MDZ8MDJkZGFjZGV8MTYwMzgzNDc2MHwxODIzMHwyNjYyOQ%3D%3D&nothumb=yes) *(46.32 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=Nzc5MDZ8MDJkZGFjZGV8MTYwMzgzNDc2MHwxODIzMHwyNjYyOQ%3D%3D&nothumb=yes)
 

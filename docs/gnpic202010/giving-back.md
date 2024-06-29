@@ -4,15 +4,15 @@
 
 TID：1721
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-Hi guys. Just wanted to give something back to this community. Not much but I hope you like it. Sorry for the English.<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+Hi guys. Just wanted to give something back to this community. Not much but I hope you like it. Sorry for the English. 
 
 # 2
 
- <ignore_js_op>[solidsock_poser_001.jpg](forum.php?mod=attachment&aid=NTcwMXw5NmZiN2FiZXwxNjAzODgyODc0fDE4MjMwfDE3MjE%3D&nothumb=yes) *(103.07 KB, 下載次數: 18)*
+<ignore_js_op>[solidsock_poser_001.jpg](forum.php?mod=attachment&aid=NTcwMXw5NmZiN2FiZXwxNjAzODgyODc0fDE4MjMwfDE3MjE%3D&nothumb=yes) *(103.07 KB, 下載次數: 18)*
 
 [下載附件](forum.php?mod=attachment&aid=NTcwMXw5NmZiN2FiZXwxNjAzODgyODc0fDE4MjMwfDE3MjE%3D&nothumb=yes)
 
@@ -36,15 +36,16 @@ test render 02
 
 test render 03
 
-[![test render 03](static/image/common/none.gif "test render 03")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![test render 03](static/image/common/none.gif "test render 03")](javascript:;)</ignore_js_op>  
 
 # 3
 
-Thanks for the comment! ![](static/image/smiley/bigface/11.gif) Yup, I did these last year before my PC broke down. ![](static/image/smiley/bigface/27.gif)<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+Thanks for the comment! ![](static/image/smiley/bigface/11.gif) Yup, I did these last year before my PC broke down. ![](static/image/smiley/bigface/27.gif) 
 
 # 4
 
 Thanks for the kind words everyone~ ![](static/image/smiley/bigface/10.gif)
+
 I'll try dig up some more of my old renders.
 
 To Mr. Js0522: Nope, I got the model, (Aiko3) from [http://www.daz3d.com/.](http://www.daz3d.com/.) I got her clothes and city scene (Dystopia) from there too.

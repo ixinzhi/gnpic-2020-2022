@@ -4,11 +4,12 @@
 
 TID：25214
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 廢話不多說
+
 直接進入主題
 
 <ignore_js_op>![](img/98e43a24dc0db335c6058bb34ba9ea43.png)
@@ -52,17 +53,27 @@ TID：25214
 2018-5-28 03:07 上傳
 
 有鑑於大家都愛灌水去漫畫區
+
 我不如發在這裡
+
 [原作P網](https://www.pixiv.net/member_illust.php?mode=medium&illust_id=68703213)
+
 有興趣其他作品就去看原作吧
+
 ˋ是合集裡的五張
+
 順序也被我調整過了
+
 並沒有很精細的加工(畢竟沒人付我錢啊)
+
 所以就將就著看吧
 
 希望大家不要亂水帖把大佬們氣到腦中風退圈
+
 多多回文對於創作者來說是很好的動力
+
 我想連國小生都寫得出50字的心得
+
 我們不求多，至少也有誠意的給點感想吧?
 
 當然投獎勵點更好</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

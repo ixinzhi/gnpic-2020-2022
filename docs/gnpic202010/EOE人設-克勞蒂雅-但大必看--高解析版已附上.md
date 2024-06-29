@@ -4,7 +4,7 @@
 
 TID：1936
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -18,11 +18,11 @@ TID：1936
 
 基础不好，仰视角度和广角镜头实在把握不好，所以只能来个基础样子了，能当设定，但没法当插图……毛病多多，各位见笑了
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
- <ignore_js_op>[克勞蒂雅.jpg](forum.php?mod=attachment&aid=NjE5NHwxYTQzN2ZhZnwxNjAzODgzMjI5fDE4MjMwfDE5MzY%3D&nothumb=yes) *(255.67 KB, 下載次數: 11)*
+<ignore_js_op>[克勞蒂雅.jpg](forum.php?mod=attachment&aid=NjE5NHwxYTQzN2ZhZnwxNjAzODgzMjI5fDE4MjMwfDE5MzY%3D&nothumb=yes) *(255.67 KB, 下載次數: 11)*
 
 [下載附件](forum.php?mod=attachment&aid=NjE5NHwxYTQzN2ZhZnwxNjAzODgzMjI5fDE4MjMwfDE5MzY%3D&nothumb=yes)
 
@@ -30,7 +30,7 @@ TID：1936
 
 高解析版
 
-[![高解析版](static/image/common/none.gif "高解析版")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![高解析版](static/image/common/none.gif "高解析版")](javascript:;)</ignore_js_op>  
 
 # 3
 
@@ -39,51 +39,71 @@ TID：1936
 一传图片就白屏，要么就是干脆不显示附件窗口……（但是设定个人资料时却能改头像为什么）
 
 最后找了一个能转载图片的网站，但是只能传较小的图片，
+
 我原图比这个大一倍，可惜传不了…………谁能帮我解决传图问题&………………还有，咱这服务器什么时候能恢复对大陆的友好呢…………
 
-[ *本帖最後由 songpeng 於 2009-1-22 05:06 編輯* ]<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 songpeng 於 2009-1-22 05:06 編輯* ] 
 
 # 4
 
 人的话太小了，在这张图里也就4、5个像素那么大，画出来也看不见…………
 
-用一个叫sai的简易软件直接画的（ps的笔刷不好用而且一画电脑风扇就狂转……）<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+用一个叫sai的简易软件直接画的（ps的笔刷不好用而且一画电脑风扇就狂转……） 
 
 # 5
 
 > 原帖由 *eventually* 於 2009-1-22 15:27 發表 [](http://giantess-night.com/gts_talk/redirect.php?goto=findpost&pid=23123&ptid=1936)
+
 > LS：
+
 > Hotspot Shield Launch
+
 > 我用的这个，感觉挺快的啊……
+
 > 
+
 > 但大：
+
 > 我想说的那个是“无口，无心，无表情”
 
 汗，我也以為是無胸什麽什麽的……
-不過克勞蒂雅曾經也是和桃樂絲激烈戰鬥和爭吵的，應該不會太無心無表情，只是平時比較冷靜型吧<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+不過克勞蒂雅曾經也是和桃樂絲激烈戰鬥和爭吵的，應該不會太無心無表情，只是平時比較冷靜型吧 
 
 # 6
 
 > 原帖由 *Dante* 於 2009-1-22 15:05 發表 [](http://giantess-night.com/gts_talk/redirect.php?goto=findpost&pid=23120&ptid=1936)
+
 > 　
+
 > 看到自己筆下的角色被人畫出來，我當然是HIGH翻了啊∼∼∼！！！![](static/image/smiley/bigface/50.gif)
+
 > 
+
 > 感謝你對我筆下的角色有愛！
+
 > 
+
 > 即使是設定圖也好，可以請你多畫幾個你喜歡的角色嗎？![](static/image/smiley/bigface/11.gif)
+
 > 
+
 > 倒是這些人物的基本設定，例如髮色 ...
 
 原來你是這個郵箱……我曾經賬號被論壇自動封鎖了長達半年，給網站上寫的聯繫郵箱發信完全沒回音…………
 
-得到但大和眾多網友支持，我會繼續畫的~~下一個畫麻由華吧~<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+得到但大和眾多網友支持，我會繼續畫的~~下一個畫麻由華吧~ 
 
 # 7
 
 > 原帖由 *xnr* 於 2009-1-22 21:24 發表 [](http://giantess-night.com/gts_talk/redirect.php?goto=findpost&pid=23141&ptid=1936)
+
 > 楼主画的真不错。。。
+
 > 我想问下楼主具体是用什么\软件画的？
+
 > 是不是一定要用到手写板？或者手绘加扫描仪？
+
 > 我是有画画的功\底但 ...
 
 没错，必须用手写板，练习哟用鼠标画的话不是不可以，只是需要长年累月练习，而且会背弃经典绘画的能力
@@ -96,42 +116,50 @@ TID：1936
 
 有基礎太好了。能者多勞，大家共同努力吧！
 
-[ *本帖最後由 songpeng 於 2009-1-22 22:48 編輯* ]<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 songpeng 於 2009-1-22 22:48 編輯* ] 
 
 # 8
 
 > 原帖由 *Dante* 於 2009-1-22 20:16 發表 [](http://giantess-night.com/gts_talk/redirect.php?goto=findpost&pid=23135&ptid=1936)
+
 > 
+
 > 抱歉抱歉，因為我一直沒改首頁的郵箱，不知道為什麼我就是遺忘了那裡＝ ＝
+
 > 
+
 > 不過自動封鎖？而且是在這半年？嗯………本論壇被偉大長城給擋住的時間差不多也將近有半年，沒用代理或什麼的手段是連不上來的，所以 ...
 
-帳號被封是前年年底到今年年中（那段時間還發生過較長時期的禁止注冊事件，所以論壇完全沒法進）。ip封鎖是去年後半年開始的，所以……<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+帳號被封是前年年底到今年年中（那段時間還發生過較長時期的禁止注冊事件，所以論壇完全沒法進）。ip封鎖是去年後半年開始的，所以…… 
 
 # 9
 
 > 原帖由 *JOYYSOSOSO* 於 2009-1-23 02:36 發表 [](http://giantess-night.com/gts_talk/redirect.php?goto=findpost&pid=23155&ptid=1936)
+
 > 手贱用WIN自带画图改了一下....只是细节上的,没有工具没办法大改.....冷漠的原因眼睛改细了些,手枪为了突出质感改长了一些
+
 > ...
 
 哈哈，用普通画图改得能这么圆滑？
 
 我是比较喜欢萌萝莉，大眼短裙也是自己的感觉，大眼可能不是很准，但是短裙还是比较复合克劳蒂雅在剧中所做的事情的~什么高速移动啦，什么骑摩托啦。
 
-多几个版本是好事啊，作为小说就是不能有太固化的形象设定~~<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+多几个版本是好事啊，作为小说就是不能有太固化的形象设定~~ 
 
 # 10
 
-关于那个改图，应该把眉毛也放下来，否则眼神怪怪的<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+关于那个改图，应该把眉毛也放下来，否则眼神怪怪的 
 
 # 11
 
-所以说，winbmp是永不得的啊![](static/image/smiley/bigface/10.gif)<title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+所以说，winbmp是永不得的啊![](static/image/smiley/bigface/10.gif) 
 
 # 12
 
 > 原帖由 *eventually* 於 2009-1-23 11:34 發表 [](http://giantess-night.com/gts_talk/redirect.php?goto=findpost&pid=23162&ptid=1936)
+
 > 要广义的看待三无啊……如果都是像神无那样的估计喜欢三无少女的就很少拉![](static/image/smiley/bigface/10.gif)
+
 > “个性冷靜、不失幽默但偶爾會展現出有情緒的那一面”完全符合三无 ...
 
 我是没见过长门有希没有过幽默和喲情绪![](static/image/smiley/bigface/27.gif)

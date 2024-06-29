@@ -4,16 +4,17 @@
 
 TID：27216
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 应琳姐之邀，转来了她的精美MMD图
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[IMG_3453[1].JPG](forum.php?mod=attachment&aid=NzkzMTF8YzdjMjAyZjZ8MTYwMzgzNTk0OXwxODIzMHwyNzIxNg%3D%3D&nothumb=yes) *(335.61 KB, 下載次數: 9)*
+<ignore_js_op>[IMG_3453[1].JPG](forum.php?mod=attachment&aid=NzkzMTF8YzdjMjAyZjZ8MTYwMzgzNTk0OXwxODIzMHwyNzIxNg%3D%3D&nothumb=yes) *(335.61 KB, 下載次數: 9)*
 
 [下載附件](forum.php?mod=attachment&aid=NzkzMTF8YzdjMjAyZjZ8MTYwMzgzNTk0OXwxODIzMHwyNzIxNg%3D%3D&nothumb=yes)
 
@@ -139,15 +140,15 @@ TID：27216
 
 2019-8-7 18:21 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![IMG_3760[1].JPG](img/784eac27bc5a24de1fdcb199fb766db0.png "IMG_3760[1].JPG")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![IMG_3760[1].JPG](img/784eac27bc5a24de1fdcb199fb766db0.png "IMG_3760[1].JPG")](javascript:;)</ignore_js_op>  
 
 # 3
 
-还没结束，第二档图片<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+还没结束，第二档图片 
 
 # 4
 
- <ignore_js_op>[IMG_3761[1].JPG](forum.php?mod=attachment&aid=NzkzMjJ8ODYzMDc5NzZ8MTYwMzgzNTk0OXwxODIzMHwyNzIxNg%3D%3D&nothumb=yes) *(210.66 KB, 下載次數: 0)*
+<ignore_js_op>[IMG_3761[1].JPG](forum.php?mod=attachment&aid=NzkzMjJ8ODYzMDc5NzZ8MTYwMzgzNTk0OXwxODIzMHwyNzIxNg%3D%3D&nothumb=yes) *(210.66 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=NzkzMjJ8ODYzMDc5NzZ8MTYwMzgzNTk0OXwxODIzMHwyNzIxNg%3D%3D&nothumb=yes)
 
@@ -219,29 +220,36 @@ TID：27216
 
 2019-8-7 18:25 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![IMG_3444[1].JPG](img/95d52fb314183e369d044daf18e70d3d.png "IMG_3444[1].JPG")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![IMG_3444[1].JPG](img/95d52fb314183e369d044daf18e70d3d.png "IMG_3444[1].JPG")](javascript:;)</ignore_js_op>  
 
 # 5
 
 > [琳姐 發表於 2019-8-7 19:43](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=411917&ptid=27216)
+
 > ？？都是裸体？。。。。。。。。
 
 哈哈欢迎琳姐。这是当然了，裸体是gts的精髓啊啊。光裸体哪行，得露出重要部位的才行啊！非福利我都不收藏的![](static/image/smiley/bigface/34.gif)
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 6
 
 > [迷途小喵 發表於 2019-8-8 13:27](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=412002&ptid=27216)
+
 > 請問一下琳姊是雷姆的某種梗暱稱嗎?
+
 > 我有點看不懂這之間的關係
 
 琳姐就是名字啊，蕾姆算是别称吧
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 7
 
 > [迷途小喵 發表於 2019-8-8 13:27](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=412002&ptid=27216)
+
 > 請問一下琳姊是雷姆的某種梗暱稱嗎?
+
 > 我有點看不懂這之間的關係
 
 如果你问的是动漫里的蕾姆的话，那是没有的，琳姐是那位做MMD的女孩子的名字

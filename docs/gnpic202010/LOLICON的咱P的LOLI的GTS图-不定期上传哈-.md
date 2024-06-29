@@ -4,7 +4,7 @@
 
 TID：1488
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -12,11 +12,11 @@ TID：1488
 
 本想着做多些出个个人帖的，不过考试之前估计是不好办啦…… ![](static/image/smiley/bigface/3.gif)
 
-嘛~总之先传上来了哈，个人没什么风格，大家如果觉得还好的话请小支持一下哈~  ![](static/image/smiley/bigface/7.gif) ![](static/image/smiley/bigface/7.gif)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+嘛~总之先传上来了哈，个人没什么风格，大家如果觉得还好的话请小支持一下哈~  ![](static/image/smiley/bigface/7.gif) ![](static/image/smiley/bigface/7.gif) 
 
 # 2
 
- <ignore_js_op>[&#34013; (18).jpg](forum.php?mod=attachment&aid=NTI2MXw1NzRjZDllNHwxNjAzODgxOTMwfDE4MjMwfDE0ODg%3D&nothumb=yes) *(204.34 KB, 下載次數: 17)*
+<ignore_js_op>[&#34013; (18).jpg](forum.php?mod=attachment&aid=NTI2MXw1NzRjZDllNHwxNjAzODgxOTMwfDE4MjMwfDE0ODg%3D&nothumb=yes) *(204.34 KB, 下載次數: 17)*
 
 [下載附件](forum.php?mod=attachment&aid=NTI2MXw1NzRjZDllNHwxNjAzODgxOTMwfDE4MjMwfDE0ODg%3D&nothumb=yes)
 
@@ -40,7 +40,7 @@ TID：1488
 
 2008-6-24 11:18 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![zp.jpg](static/image/common/none.gif "zp.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![zp.jpg](static/image/common/none.gif "zp.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 

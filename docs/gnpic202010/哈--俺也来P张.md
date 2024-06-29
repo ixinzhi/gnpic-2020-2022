@@ -4,12 +4,14 @@
 
 TID：3704
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 这个在文件大小上刚缩到2M以内，小人就成马赛克了。。。
+
 水波纹下了很大功夫
+
 这样做才能看到是海面不是湖面吧？ <ignore_js_op>![](static/image/common/none.gif)
 
 **111111111.jpg** *(495.36 KB, 下載次數: 3)*
@@ -18,7 +20,7 @@ TID：3704
 
 2009-7-28 21:37 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -57,16 +59,21 @@ TID：3704
 2009-7-28 21:45 上傳
 
 这个图作的太大 ，人就看不清了
+
 所以发几张局部的
 
-[ *本帖最後由 心晴 於 2009-7-28 21:45 編輯* ]<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 心晴 於 2009-7-28 21:45 編輯* ] 
 
 # 3
 
 PS CS4 和WIN7那是相当不兼容了
+
 今天做了3遍了，前两遍做的都不错结果不能保存
+
 直接做完还得重做，那个火呀！
+
 最后一遍已经没有前面的激情了
+
 PS老说什么   <ignore_js_op>![](static/image/common/none.gif)
 
 **1.JPG** *(27.48 KB, 下載次數: 0)*

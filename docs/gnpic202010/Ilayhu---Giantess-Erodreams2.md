@@ -4,7 +4,7 @@
 
 TID：17859
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -148,7 +148,7 @@ ilayhu
 
 2014-10-5 00:56 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -258,11 +258,11 @@ ilayhu
 
 2014-10-15 13:15 上傳
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
- <ignore_js_op>[en021.jpg](forum.php?mod=attachment&aid=NDc2NzV8NGIxODY1ZmR8MTYwMzgyNzQ4NXwxODIzMHwxNzg1OQ%3D%3D&nothumb=yes) *(299.13 KB, 下載次數: 2)*
+<ignore_js_op>[en021.jpg](forum.php?mod=attachment&aid=NDc2NzV8NGIxODY1ZmR8MTYwMzgyNzQ4NXwxODIzMHwxNzg1OQ%3D%3D&nothumb=yes) *(299.13 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=NDc2NzV8NGIxODY1ZmR8MTYwMzgyNzQ4NXwxODIzMHwxNzg1OQ%3D%3D&nothumb=yes)
 
@@ -274,7 +274,7 @@ ilayhu
 
 2014-10-15 13:11 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![Detention  (41).jpg](img/7fddba0975dc586e47cb40e5094c7b0d.png "Detention  (41).jpg")](javascript:;)</ignore_js_op> <title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![Detention  (41).jpg](img/7fddba0975dc586e47cb40e5094c7b0d.png "Detention  (41).jpg")](javascript:;)</ignore_js_op>  
 
 # 4
 
@@ -384,7 +384,7 @@ ilayhu
 
 2014-11-12 22:41 上傳
 
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 5
 
@@ -446,7 +446,7 @@ ilayhu
 
 2014-11-26 21:20 上傳
 
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 6
 
@@ -524,7 +524,7 @@ ilayhu
 
 2015-1-8 22:47 上傳
 
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 7
 
@@ -602,7 +602,7 @@ ilayhu
 
 2015-5-14 06:17 上傳
 
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 8
 
@@ -668,7 +668,7 @@ ilayhu
 
 2015-6-12 00:24 上傳
 
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 9
 
@@ -734,7 +734,7 @@ ilayhu
 
 2015-7-22 05:17 上傳
 
-<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 10
 
@@ -816,7 +816,7 @@ ilayhu
 
 2015-9-29 03:57 上傳
 
-<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 11
 
@@ -914,7 +914,7 @@ ilayhu
 
 2016-2-5 10:07 上傳
 
-<title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 12
 
@@ -1010,7 +1010,7 @@ ilayhu
 
 2016-9-10 08:22 上傳
 
-<title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 13
 
@@ -1029,11 +1029,12 @@ ilayhu
 謝謝
 
 ilayhu
-<title>14</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 14
 
- <ignore_js_op>[GE2-2015-week050-SF2part05.jpg](forum.php?mod=attachment&aid=Njk4Mzd8MmUzOTA5ZDJ8MTYwMzgyNzc2MnwxODIzMHwxNzg1OQ%3D%3D&nothumb=yes) *(187.61 KB, 下載次數: 0)*
+<ignore_js_op>[GE2-2015-week050-SF2part05.jpg](forum.php?mod=attachment&aid=Njk4Mzd8MmUzOTA5ZDJ8MTYwMzgyNzc2MnwxODIzMHwxNzg1OQ%3D%3D&nothumb=yes) *(187.61 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=Njk4Mzd8MmUzOTA5ZDJ8MTYwMzgyNzc2MnwxODIzMHwxNzg1OQ%3D%3D&nothumb=yes)
 
@@ -1093,7 +1094,7 @@ ilayhu
 
 2017-11-19 04:11 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![GE2-2016-week007-svml-part02.jpg](img/ba18626b58e203a4ce3c1b872f3fdb58.png "GE2-2016-week007-svml-part02.jpg")](javascript:;)</ignore_js_op> <title>15</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![GE2-2016-week007-svml-part02.jpg](img/ba18626b58e203a4ce3c1b872f3fdb58.png "GE2-2016-week007-svml-part02.jpg")](javascript:;)</ignore_js_op>  
 
 # 15
 
@@ -1116,11 +1117,12 @@ ilayhu
 謝謝
 
 ilayhu
-<title>16</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 16
 
- <ignore_js_op>[GE2-2016-week008-svml-part03.jpg](forum.php?mod=attachment&aid=ODQ0Mjh8MTgzMjRjZGV8MTYwMzgyNzc2MnwxODIzMHwxNzg1OQ%3D%3D&nothumb=yes) *(369.16 KB, 下載次數: 0)*
+<ignore_js_op>[GE2-2016-week008-svml-part03.jpg](forum.php?mod=attachment&aid=ODQ0Mjh8MTgzMjRjZGV8MTYwMzgyNzc2MnwxODIzMHwxNzg1OQ%3D%3D&nothumb=yes) *(369.16 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=ODQ0Mjh8MTgzMjRjZGV8MTYwMzgyNzc2MnwxODIzMHwxNzg1OQ%3D%3D&nothumb=yes)
 

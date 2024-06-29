@@ -4,7 +4,7 @@
 
 TID：8490
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -14,11 +14,11 @@ Welcome back GN. Here is a little welcoming gift. Enjoy.
 
 欢迎回来肾炎。这里是一个小的惊喜礼物。享受。
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[JandL-1.png](forum.php?mod=attachment&aid=MjE1NzF8M2RkOWY2MDF8MTYwMzg3OTAzOHwxODIzMHw4NDkw&nothumb=yes) *(121.58 KB, 下載次數: 7)*
+<ignore_js_op>[JandL-1.png](forum.php?mod=attachment&aid=MjE1NzF8M2RkOWY2MDF8MTYwMzg3OTAzOHwxODIzMHw4NDkw&nothumb=yes) *(121.58 KB, 下載次數: 7)*
 
 [下載附件](forum.php?mod=attachment&aid=MjE1NzF8M2RkOWY2MDF8MTYwMzg3OTAzOHwxODIzMHw4NDkw&nothumb=yes)
 

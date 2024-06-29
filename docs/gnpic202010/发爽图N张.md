@@ -4,17 +4,17 @@
 
 TID：8328
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 自制……鼓励……
 
-[ *本帖最後由 cccc2468cccc 於 2010-6-30 21:26 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 cccc2468cccc 於 2010-6-30 21:26 編輯* ] 
 
 # 2
 
- <ignore_js_op>[001.JPG](forum.php?mod=attachment&aid=MjEyMjN8ZGI5ZWYzN2R8MTYwMzg3NzYwM3wxODIzMHw4MzI4&nothumb=yes) *(267.76 KB, 下載次數: 42)*
+<ignore_js_op>[001.JPG](forum.php?mod=attachment&aid=MjEyMjN8ZGI5ZWYzN2R8MTYwMzg3NzYwM3wxODIzMHw4MzI4&nothumb=yes) *(267.76 KB, 下載次數: 42)*
 
 [下載附件](forum.php?mod=attachment&aid=MjEyMjN8ZGI5ZWYzN2R8MTYwMzg3NzYwM3wxODIzMHw4MzI4&nothumb=yes)
 

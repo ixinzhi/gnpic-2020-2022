@@ -4,7 +4,7 @@
 
 TID：24285
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -13,5 +13,7 @@ TID：24285
 htt去ps://pa掉n.bai汉du.com/s/1字o8XG8cE
 
 附：图片的故事是从弱音的计划开始的。
+
 你问我为什么前面没做？1.前面没啥福利，而且前面的剧情可以通过人物对话脑补出来。（虽然也没有嵌字）
+
 加压密码：Scale      （注意S大写）

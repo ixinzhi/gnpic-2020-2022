@@ -4,22 +4,23 @@
 
 TID：12319
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 兩張圖都有點草,別介意! 還要多練習呢![](static/image/smiley/bigface/8.gif)
 
 初音自己"走"來台北觀光囉(腳程對她不到10分鐘..)
+
 故事請看3樓但大幫我寫的![](static/image/smiley/bigface/7.gif)
 
 喔對了第二張有但丁管理員大人, 大家知道在哪吧..^^
 
-[ *本帖最後由 pliod 於 2012-5-15 23:02 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 pliod 於 2012-5-15 23:02 編輯* ] 
 
 # 2
 
- <ignore_js_op>[miku.jpg](forum.php?mod=attachment&aid=Mjg1NDJ8YWE3OTU5ZDB8MTYwMzg3NTEzN3wxODIzMHwxMjMxOQ%3D%3D&nothumb=yes) *(1.37 MB, 下載次數: 11)*
+<ignore_js_op>[miku.jpg](forum.php?mod=attachment&aid=Mjg1NDJ8YWE3OTU5ZDB8MTYwMzg3NTEzN3wxODIzMHwxMjMxOQ%3D%3D&nothumb=yes) *(1.37 MB, 下載次數: 11)*
 
 [下載附件](forum.php?mod=attachment&aid=Mjg1NDJ8YWE3OTU5ZDB8MTYwMzg3NTEzN3wxODIzMHwxMjMxOQ%3D%3D&nothumb=yes)
 

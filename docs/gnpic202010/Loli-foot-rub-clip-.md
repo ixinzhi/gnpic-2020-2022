@@ -4,7 +4,7 @@
 
 TID：9171
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -20,17 +20,17 @@ Its not really much since I'm still new at this, but I hope you can enjoy this a
 
 YA-HA!!!
 
-[http://www.megaupload.com/?d=21OWP84D](http://www.megaupload.com/?d=21OWP84D)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[http://www.megaupload.com/?d=21OWP84D](http://www.megaupload.com/?d=21OWP84D) 
 
 # 2
 
- <ignore_js_op>[loli foot rub.png](forum.php?mod=attachment&aid=MTI5Njl8ZmJiZDkxNjV8MTYwMzg4MTIyOHwxODIzMHw5MTcx&nothumb=yes) *(280.86 KB, 下載次數: 25)*
+<ignore_js_op>[loli foot rub.png](forum.php?mod=attachment&aid=MTI5Njl8ZmJiZDkxNjV8MTYwMzg4MTIyOHwxODIzMHw5MTcx&nothumb=yes) *(280.86 KB, 下載次數: 25)*
 
 [下載附件](forum.php?mod=attachment&aid=MTI5Njl8ZmJiZDkxNjV8MTYwMzg4MTIyOHwxODIzMHw5MTcx&nothumb=yes)
 
 2009-9-16 04:07 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![loli foot rub.png](static/image/common/none.gif "loli foot rub.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![loli foot rub.png](static/image/common/none.gif "loli foot rub.png")](javascript:;)</ignore_js_op>  
 
 # 3
 

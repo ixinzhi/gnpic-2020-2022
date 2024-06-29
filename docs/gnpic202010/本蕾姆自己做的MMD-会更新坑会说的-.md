@@ -4,15 +4,15 @@
 
 TID：22861
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-自制。。。。。。。。。。。。。。。好麻烦<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+自制。。。。。。。。。。。。。。。好麻烦 
 
 # 2
 
- <ignore_js_op>[21313.bmp](forum.php?mod=attachment&aid=Njc0NTR8NzVhYjE3NTR8MTYwMzg1MDc1MnwxODIzMHwyMjg2MQ%3D%3D&nothumb=yes) *(276.8 KB, 下載次數: 18)*
+<ignore_js_op>[21313.bmp](forum.php?mod=attachment&aid=Njc0NTR8NzVhYjE3NTR8MTYwMzg1MDc1MnwxODIzMHwyMjg2MQ%3D%3D&nothumb=yes) *(276.8 KB, 下載次數: 18)*
 
 [下載附件](forum.php?mod=attachment&aid=Njc0NTR8NzVhYjE3NTR8MTYwMzg1MDc1MnwxODIzMHwyMjg2MQ%3D%3D&nothumb=yes)
 
@@ -78,28 +78,29 @@ TID：22861
 
 2017-4-3 01:59 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![1233129.bmp](img/75693962b5ea2f47f17ce41a884405a5.png "1233129.bmp")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![1233129.bmp](img/75693962b5ea2f47f17ce41a884405a5.png "1233129.bmp")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > [qreeper 發表於 2017-4-3 12:11](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=328131&ptid=22861)
+
 > 怎么做到人物变小变大的啊
 
 指哪一些？...........凑字数
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
-如果是mmd要另外改模型，mmm是自带不过有点麻烦，还是mmd比较好一点虽然复杂了点<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+如果是mmd要另外改模型，mmm是自带不过有点麻烦，还是mmd比较好一点虽然复杂了点 
 
 # 5
 
-。。。。。。。。。。。。。。。。。。。。<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+。。。。。。。。。。。。。。。。。。。。 
 
 # 6
 
- <ignore_js_op>[21.bmp](forum.php?mod=attachment&aid=Njc0OTB8NTVmYWE2OWV8MTYwMzg1MDc1MnwxODIzMHwyMjg2MQ%3D%3D&nothumb=yes) *(303.03 KB, 下載次數: 0)*
+<ignore_js_op>[21.bmp](forum.php?mod=attachment&aid=Njc0OTB8NTVmYWE2OWV8MTYwMzg1MDc1MnwxODIzMHwyMjg2MQ%3D%3D&nothumb=yes) *(303.03 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=Njc0OTB8NTVmYWE2OWV8MTYwMzg1MDc1MnwxODIzMHwyMjg2MQ%3D%3D&nothumb=yes)
 

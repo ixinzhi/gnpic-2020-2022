@@ -4,17 +4,17 @@
 
 TID：484
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 恩，打算搞收費的，老樣子，會不定時繼續更新。
 
-[ *本帖最後由 freelycat 於 2012-4-15 21:33 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 freelycat 於 2012-4-15 21:33 編輯* ] 
 
 # 2
 
- <ignore_js_op>[WoWScrnShot_082007_144139.jpg](forum.php?mod=attachment&aid=MTgxNXxhYzJkZWU5ZnwxNjAzODgzNzM2fDE4MjMwfDQ4NA%3D%3D&nothumb=yes) *(427.81 KB, 下載次數: 194)*
+<ignore_js_op>[WoWScrnShot_082007_144139.jpg](forum.php?mod=attachment&aid=MTgxNXxhYzJkZWU5ZnwxNjAzODgzNzM2fDE4MjMwfDQ4NA%3D%3D&nothumb=yes) *(427.81 KB, 下載次數: 194)*
 
 [下載附件](forum.php?mod=attachment&aid=MTgxNXxhYzJkZWU5ZnwxNjAzODgzNzM2fDE4MjMwfDQ4NA%3D%3D&nothumb=yes)
 
@@ -70,24 +70,28 @@ TID：484
 
 你大我也大
 
-![你大我也大](static/image/common/none.gif "你大我也大")</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+![你大我也大](static/image/common/none.gif "你大我也大")</ignore_js_op>  
 
 # 3
 
 都是超大張的，可以下載了自己留著玩，但是請勿隨意轉發到別的網站，如果想轉發，請與我聯系
+
 1680X1050的分辨率，效果應該不錯。
- ----------------------------------------------------------------------
-另，如果我發現誰利用我的成品拿到別的地方去隨意亂發的話，我會考慮給我的圖片加上版權信息！而且這種版權信息是以犧牲圖片質量和可視范圍為代價的。要這么干的人自己想清楚了！ <title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+----------------------------------------------------------------------
+
+另，如果我發現誰利用我的成品拿到別的地方去隨意亂發的話，我會考慮給我的圖片加上版權信息！而且這種版權信息是以犧牲圖片質量和可視范圍為代價的。要這么干的人自己想清楚了！  
 
 # 4
 
-我那個私服是不限制大小的……140的时候基本就看不到東西了……甚至鞋子底就把整個視野都佔滿了……還要調整速度……實在太BT了<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+我那個私服是不限制大小的……140的时候基本就看不到東西了……甚至鞋子底就把整個視野都佔滿了……還要調整速度……實在太BT了 
 
 # 5
 
-再度更新，外域部分貌似太大了，懶得到處亂跑了，請大家見諒<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+再度更新，外域部分貌似太大了，懶得到處亂跑了，請大家見諒 
 
 # 6
 
 不過我會一步一步的更新的。基本是有空就上幾張
+
 不過下次就是第三彈了。

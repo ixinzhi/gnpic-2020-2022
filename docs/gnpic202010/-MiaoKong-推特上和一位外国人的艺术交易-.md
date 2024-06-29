@@ -4,16 +4,17 @@
 
 TID：26505
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 其实我也不知道这是谁
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[交易5.jpg](forum.php?mod=attachment&aid=NzY5MDZ8NDY5ZmQ4ZDN8MTYwMzg0NDgxNnwxODIzMHwyNjUwNQ%3D%3D&nothumb=yes) *(2.78 MB, 下載次數: 23)*
+<ignore_js_op>[交易5.jpg](forum.php?mod=attachment&aid=NzY5MDZ8NDY5ZmQ4ZDN8MTYwMzg0NDgxNnwxODIzMHwyNjUwNQ%3D%3D&nothumb=yes) *(2.78 MB, 下載次數: 23)*
 
 [下載附件](forum.php?mod=attachment&aid=NzY5MDZ8NDY5ZmQ4ZDN8MTYwMzg0NDgxNnwxODIzMHwyNjUwNQ%3D%3D&nothumb=yes)
 

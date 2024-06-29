@@ -4,23 +4,25 @@
 
 TID：19416
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 圣女大人 於 2015-7-15 12:46 編輯*
 
 啦啦啦~\(≧▽≦)/~啦啦啦
+
 玩舰C是没事做的
 
 远处看
 
 裙下看
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 2
 
- <ignore_js_op>[12 (3).png](forum.php?mod=attachment&aid=NTMxNTF8MzZhZDVhM2R8MTYwMzg2NDI1OXwxODIzMHwxOTQxNg%3D%3D&nothumb=yes) *(3.98 MB, 下載次數: 35)*
+<ignore_js_op>[12 (3).png](forum.php?mod=attachment&aid=NTMxNTF8MzZhZDVhM2R8MTYwMzg2NDI1OXwxODIzMHwxOTQxNg%3D%3D&nothumb=yes) *(3.98 MB, 下載次數: 35)*
 
 [下載附件](forum.php?mod=attachment&aid=NTMxNTF8MzZhZDVhM2R8MTYwMzg2NDI1OXwxODIzMHwxOTQxNg%3D%3D&nothumb=yes)
 
@@ -36,27 +38,32 @@ TID：19416
 
 下面看
 
-[![下面看](img/87d7aa8653bbefb40a8997e66fe6d408.png "下面看")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![下面看](img/87d7aa8653bbefb40a8997e66fe6d408.png "下面看")](javascript:;)</ignore_js_op>  
 
 # 3
 
 > [fllg 發表於 2015-7-15 13:26](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=261798&ptid=19416)
+
 > 我觉得和厉害了，不过第一幅图的水印是特意加上去的吗？
 
 不是呢 是p不掉。。。 所以干脆不p它。。不过这个网上可以找到不错的素材2333
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 4
 
 > [awkeygen 發表於 2015-7-16 01:16](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=261876&ptid=19416)
+
 > 楼主，为你加了个景深效果
 
 ![](static/image/smiley/bigface/68.gif)厉害 厉害 我还不会 这些 只是个初学ps的![](static/image/smiley/bigface/58.gif)
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 5
 
 > [din1919 發表於 2015-8-5 20:23](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=264578&ptid=19416)
+
 > 楼主城市素材哪找的····
 
 这个 有点难搞 用3dMAX调好角度渲染的

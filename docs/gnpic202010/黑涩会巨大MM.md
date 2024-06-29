@@ -4,17 +4,17 @@
 
 TID：4854
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 坛友委托所做。最后一张非黑涩会美眉。
 
-[ *本帖最後由 sjw 於 2009-9-18 15:46 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 sjw 於 2009-9-18 15:46 編輯* ] 
 
 # 2
 
- <ignore_js_op>[人&#31867;有&#38590;了16.jpg](forum.php?mod=attachment&aid=MTMxNzF8NTIwZDA5NjB8MTYwMzg4MTI0N3wxODIzMHw0ODU0&nothumb=yes) *(494.36 KB, 下載次數: 78)*
+<ignore_js_op>[人&#31867;有&#38590;了16.jpg](forum.php?mod=attachment&aid=MTMxNzF8NTIwZDA5NjB8MTYwMzg4MTI0N3wxODIzMHw0ODU0&nothumb=yes) *(494.36 KB, 下載次數: 78)*
 
 [下載附件](forum.php?mod=attachment&aid=MTMxNzF8NTIwZDA5NjB8MTYwMzg4MTI0N3wxODIzMHw0ODU0&nothumb=yes)
 
@@ -56,31 +56,31 @@ TID：4854
 
 2009-9-18 15:46 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![人&#31867;有&#38590;了15.jpg](static/image/common/none.gif "人&#31867;有&#38590;了15.jpg")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![人&#31867;有&#38590;了15.jpg](static/image/common/none.gif "人&#31867;有&#38590;了15.jpg")](javascript:;)</ignore_js_op>  
 
 # 3
 
 巨大![](static/image/smiley/bigface/30.gif)
 
-[ *本帖最後由 sjw 於 2009-9-18 15:43 編輯* ]<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 sjw 於 2009-9-18 15:43 編輯* ] 
 
 # 4
 
- <ignore_js_op>[人&#31867;有&#38590;了15.jpg](forum.php?mod=attachment&aid=MTMxNzd8NDcyNDRmNDd8MTYwMzg4MTI0N3wxODIzMHw0ODU0&nothumb=yes) *(790.37 KB, 下載次數: 5)*
+<ignore_js_op>[人&#31867;有&#38590;了15.jpg](forum.php?mod=attachment&aid=MTMxNzd8NDcyNDRmNDd8MTYwMzg4MTI0N3wxODIzMHw0ODU0&nothumb=yes) *(790.37 KB, 下載次數: 5)*
 
 [下載附件](forum.php?mod=attachment&aid=MTMxNzd8NDcyNDRmNDd8MTYwMzg4MTI0N3wxODIzMHw0ODU0&nothumb=yes)
 
 2009-9-18 15:43 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![人&#31867;有&#38590;了15.jpg](static/image/common/none.gif "人&#31867;有&#38590;了15.jpg")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![人&#31867;有&#38590;了15.jpg](static/image/common/none.gif "人&#31867;有&#38590;了15.jpg")](javascript:;)</ignore_js_op>  
 
 # 5
 
-OK，只要记得就不用汉字。<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+OK，只要记得就不用汉字。 
 
 # 6
 
-岁数小的未成年人，不。<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+岁数小的未成年人，不。 
 
 # 7
 

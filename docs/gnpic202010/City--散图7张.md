@@ -4,11 +4,12 @@
 
 TID：25902
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 giantess in city
+
 <ignore_js_op>![](img/c15e7080a8bfbd6305a4f159f468e205.png)
 
 **1.png** *(2.84 MB, 下載次數: 17)*
@@ -65,11 +66,12 @@ giantess in city
 
 2018-9-27 14:13 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > [JHL12138 發表於 2020-2-6 22:49](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=425063&ptid=25902)
+
 > 大大问下您是用什么软件做的
 
 I社的HoneySelect，是一款游戏，有兴趣可以去找一下</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

@@ -4,7 +4,7 @@
 
 TID：10836
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -18,7 +18,7 @@ TID：10836
 
 奴家彻夜未眠 做出此物 实在惭愧 还望能人能做个动画出来？![](static/image/smiley/bigface/57.gif)
 
-我自己都感觉此图非常粗糙啊喂![](static/image/smiley/bigface/46.gif)<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+我自己都感觉此图非常粗糙啊喂![](static/image/smiley/bigface/46.gif) 
 
 # 2
 

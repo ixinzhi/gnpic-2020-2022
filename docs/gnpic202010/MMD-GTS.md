@@ -4,7 +4,7 @@
 
 TID：12278
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -18,11 +18,11 @@ Enjoy.
 
 享受。
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[NamiandBoa.jpg](forum.php?mod=attachment&aid=Mjg0Njh8ODg2M2JlZTZ8MTYwMzg2MDk2NXwxODIzMHwxMjI3OA%3D%3D&nothumb=yes) *(1.14 MB, 下載次數: 43)*
+<ignore_js_op>[NamiandBoa.jpg](forum.php?mod=attachment&aid=Mjg0Njh8ODg2M2JlZTZ8MTYwMzg2MDk2NXwxODIzMHwxMjI3OA%3D%3D&nothumb=yes) *(1.14 MB, 下載次數: 43)*
 
 [下載附件](forum.php?mod=attachment&aid=Mjg0Njh8ODg2M2JlZTZ8MTYwMzg2MDk2NXwxODIzMHwxMjI3OA%3D%3D&nothumb=yes)
 

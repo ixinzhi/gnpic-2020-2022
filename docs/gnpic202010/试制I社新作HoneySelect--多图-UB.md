@@ -4,13 +4,14 @@
 
 TID：21859
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 vipergtr 於 2016-9-23 19:15 編輯*
 
 终于找到怎么调节大小了，先简单做几张图练手。跑了几天感觉操作真心不如俱乐部方便，需要时间适应
+
 <ignore_js_op>![](img/43ec5f58c8c4ea09847c0ab85aaa941b.png)
 
 **01.png** *(3.44 MB, 下載次數: 15)*
@@ -51,11 +52,12 @@ TID：21859
 
 2016-9-23 18:03 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 追加几张
+
 <ignore_js_op>![](img/63e1df0430f3685cf05d2c5d0d963644.png)
 
 **a.png** *(3.91 MB, 下載次數: 18)*
@@ -104,11 +106,12 @@ TID：21859
 
 2016-9-23 18:50 上傳
 
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 3
 
 光影确实有提升，但操作和地图太蛋疼
+
 <ignore_js_op>![](img/c91c238738f4725ce1c3628ea0ee8fcd.png)
 
 **g.png** *(1.7 MB, 下載次數: 14)*
@@ -149,14 +152,16 @@ TID：21859
 
 2016-9-23 19:16 上傳
 
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 4
 
 > [remirs 發表於 2016-10-4 01:31](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=310428&ptid=21859)
+
 > 请问怎么调节人物大小。。
 
 研究了好久才找到，hs操作真心不顺手
+
 <ignore_js_op>![](img/a9db8c0e747c4f7156e151843c80df9e.png)
 
 **1.jpg** *(173.31 KB, 下載次數: 0)*

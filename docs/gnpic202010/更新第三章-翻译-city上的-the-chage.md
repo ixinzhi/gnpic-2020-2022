@@ -4,7 +4,7 @@
 
 TID：15665
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -252,7 +252,7 @@ o(︶︿︶)o 唉 突然发现不但英语是小学水平，语文也是小学�
 
 2013-11-27 18:49 上傳
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
@@ -449,7 +449,8 @@ o(︶︿︶)o 唉 突然发现不但英语是小学水平，语文也是小学�
 2013-11-27 19:45 上傳
 
 给位不要光看不顶啊。我也差积分啊。
-<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 3
 

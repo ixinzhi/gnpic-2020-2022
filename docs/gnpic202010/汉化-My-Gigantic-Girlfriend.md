@@ -4,7 +4,7 @@
 
 TID：20445
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -37,13 +37,15 @@ TID：20445
 2016-1-20 15:44 上傳
 
 [http://pan.baidu.com/s/1jHkvIn0](http://pan.baidu.com/s/1jHkvIn0)
+
 <ignore_js_op>![](static/image/filetype/text.gif) [新建文本文档.txt](forum.php?mod=attachment&aid=NTg2NzV8ZWZiOTBlNDF8MTYwMzg0NjEzM3wxODIzMHwyMDQ0NQ%3D%3D) *(4 Bytes, 下載次數: 1930)* 2016-1-20 15:48 上傳點擊文件名下載附件稍微收个费
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 > [cty156054 發表於 2016-1-23 19:46](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=280978&ptid=20445)
+
 > 顺便问下能不能搬到隔壁。。。。。。
 
 隔壁是gl么，那里的话还是希望先不要转。这个作品的第二部现在正在翻译中，等制作好了之后会一起发的。</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

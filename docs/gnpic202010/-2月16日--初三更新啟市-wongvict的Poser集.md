@@ -4,7 +4,7 @@
 
 TID：6399
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -21,16 +21,18 @@ TID：6399
 新增4張圖片,光源[Light]功能,一知半解,沒能掌握
 
 1月23日
+
 新增4張圖片,Shadow能掌握的話更好,光源還在思索中,這次弄得太光了
 
 2月16日
+
 先預告一下,先貼示範圖片兩張,再增加2張
 
-[ *本帖最後由 wongvict 於 2010-2-16 10:39 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 wongvict 於 2010-2-16 10:39 編輯* ] 
 
 # 2
 
- <ignore_js_op>[test1.png](forum.php?mod=attachment&aid=MTY2NDN8ZGYxZDU0NGJ8MTYwMzg3Mzg0MnwxODIzMHw2Mzk5&nothumb=yes) *(976.97 KB, 下載次數: 15)*
+<ignore_js_op>[test1.png](forum.php?mod=attachment&aid=MTY2NDN8ZGYxZDU0NGJ8MTYwMzg3Mzg0MnwxODIzMHw2Mzk5&nothumb=yes) *(976.97 KB, 下載次數: 15)*
 
 [下載附件](forum.php?mod=attachment&aid=MTY2NDN8ZGYxZDU0NGJ8MTYwMzg3Mzg0MnwxODIzMHw2Mzk5&nothumb=yes)
 
@@ -122,20 +124,22 @@ TID：6399
 
 象徵性收費
 
-[![象徵性收費](img/331dcec835a8643ed92cc1698bcce3ed.png "象徵性收費")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![象徵性收費](img/331dcec835a8643ed92cc1698bcce3ed.png "象徵性收費")](javascript:;)</ignore_js_op>  
 
 # 3
 
 ![](static/image/smiley/bigface/55.gif)
-新增4張圖片,光源[Light]功能,一知半解,沒能掌握<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+新增4張圖片,光源[Light]功能,一知半解,沒能掌握 
 
 # 4
 
-更新了,這次弄得太光了,失敗![](static/image/smiley/bigface/8.gif)<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+更新了,這次弄得太光了,失敗![](static/image/smiley/bigface/8.gif) 
 
 # 5
 
 2月16日
+
 先預告一下,先貼示範圖片兩張,再新增兩張圖片
 
 [ *本帖最後由 wongvict 於 2010-2-16 10:37 編輯* ]

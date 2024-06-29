@@ -4,17 +4,22 @@
 
 TID：17393
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 *本帖最後由 stevenyang0430 於 2014-7-25 12:57 編輯*
 
 看到各路大神在这边发布作品， 我也忍不住了...
+
 自从去年十月份放弃写作开始搞3D作品到现在...各种艰辛啊...不过还是发布了一些作品![](static/image/smiley/bigface/10.gif)
+
 先得道歉下已经被我抛弃掉得文章...实在是没什么时间写![](static/image/smiley/bigface/23.gif)
+
 但是忘记跑到这边来发了 （已自行打脸![](static/image/smiley/bigface/26.gif)）
+
 自觉补上 The Jewelry ![](static/image/smiley/bigface/15.gif)
+
 要是喜欢的话就别忘记加我的deviantart账号哦！ [http://faterkcx.deviantart.com](http://faterkcx.deviantart.com)
 
 Warning: Sex, Nudity
@@ -24,9 +29,13 @@ Warning: Sex, Nudity
 欢迎各位来交流！  有啥关于Poser或者Daz的问题也可以问我！（臭不要脸了又![](static/image/smiley/bigface/28.gif)）
 
 =======================================================================
+
 The Jewelry Chapter 1 Unexpected Guest
+
 额...这第一章真的是渣作...在半年前完成制作（那时候开始由于city好多人都求作一个免费的然后我就做了，那时候才学没多久什么灯光啊 阴影啊乱七八糟的...自定为渣作之一, 第二章也没差多少 第三章好一些了）
+
 由于当时太懒就根本没有加对话所以大家各种脑补吧~~
+
 要是大家喜欢马上发下一章（其实已经完成三章了）
 
 群众：费什么话赶紧上图![](static/image/smiley/bigface/29.gif)
@@ -1483,73 +1492,96 @@ The Jewelry Chapter 1 Unexpected Guest
 
 第一章完成！
 
-<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 2
 
 发图片的时候出错好几次![](static/image/smiley/bigface/23.gif)
-要是发现有什么图片跳跃 什么的告诉我哈 我马上修复<title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+要是发现有什么图片跳跃 什么的告诉我哈 我马上修复 
 
 # 3
 
 > [咯咯 發表於 2014-7-25 14:49](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=229068&ptid=17393)
+
 > 分量簡直嚇尿了
+
 > 樓主這是新手大禮包麼，量好足！
 
 这个是6个月以前的渣作....隔了那么长时间放出来真心对不住...然后我这个懒人当时就没想加文字了...（自己台式机里面没中文输入法 ...）
+
 要是有同好想加也可以啊 我拍手欢迎
-<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 4
 
 > [克里亞 發表於 2014-7-25 15:04](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=229072&ptid=17393)
+
 > 頭次看到一樓能塞這麼多圖的.網路一不穩就麻煩了.
+
 > 一次上傳這麼多張真是辛苦樓主了
+
 > 私心同3樓月夜大大..想 ...
 
 额...这...欧派剧情...是什么...(求给例子)![](static/image/smiley/bigface/23.gif)
-<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 5
 
 > [yanmiaoyan 發表於 2014-7-25 15:45](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=229079&ptid=17393)
+
 > 好作品啊，用啥软件做的啊，在哪下载的啊
 
 用poser 做的...哪里下载嘛...这个软件是收费的但是大陆应该到处都是破解过的...
-<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 6
 
 > [3213213210 發表於 2014-7-25 17:42](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=229099&ptid=17393)
+
 > 不知為何通常模組都挺悲劇......
 
 是挺渣对吧![](static/image/smiley/bigface/35.gif)
-<title>7</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 7
 
 > [ssn21 發表於 2014-7-25 14:54](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=229070&ptid=17393)
+
 > 好棒的poser...求剧情对白
+
 > 
+
 > 另外你们要不要这么欺负人....
 
 不过说实话写作是给这个打了不少基础...不然根本想不到故事
-<title>8</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 8
 
 > [wxy112300 發表於 2014-7-25 19:24](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=229113&ptid=17393)
+
 > Po主的模型都是在哪里下载的....是购买的么...
+
 > 表示现在手头模型实在太少了..特别是服装和发型...
+
 > ...
 
 一部分是在官网购买的 一部分是在CGebook淘的 （要下得多还是得充值）
-<title>9</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 9
 
 上一张上个月做的（和Gts没啥关系）![](static/image/smiley/bigface/30.gif)
+
 但是可以看出来一二章会有多渣....![](static/image/smiley/bigface/13.gif)
+
 <ignore_js_op>![](img/51b6f5ca9bc21b95943613c23bbb860c.png)
 
 **Reby hair image.jpg** *(708.04 KB, 下載次數: 0)*
@@ -1558,48 +1590,62 @@ The Jewelry Chapter 1 Unexpected Guest
 
 2014-7-25 19:57 上傳
 
-<title>10</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 10
 
 > [shendanxiaogui 發表於 2014-7-25 20:28](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=229119&ptid=17393)
+
 > (｡･∀･)ﾉﾞ卧槽，最近的人好屌。要么自己做游戏要么超长篇套图。我要给你32个赞！ ...
 
 ![](static/image/smiley/bigface/12.gif)小的收不得 收不得
+
 其实这个系列已经有506张图了...
+
 （还是我卖得那个漫画一章节400张图...![](static/image/smiley/bigface/15.gif)）
-<title>11</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 11
 
 > [applychem 發表於 2014-7-25 21:52](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=229132&ptid=17393)
+
 > 好久沒看到這麼好的圖啦！雖然好多張都重複了好幾次，但無所謂！
+
 > 跪求大大第二章啊！ ^^ ...
 
 额....那个...重复的地方是成长慢镜头...
-<title>12</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 12
 
 > [moli2005 發表於 2014-7-26 09:35](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=229204&ptid=17393)
+
 > 感谢LZ搬运
+
 > 这个作者近期的作品都很棒
 
 >.>亲我就是作者啊
-<title>13</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 13
 
 > [159623abc 發表於 2014-7-28 12:28](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=229475&ptid=17393)
+
 > 已在deviantart加了楼主，谢谢楼主的作品
 
 谢谢关注！
-<title>14</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+ 
 
 # 14
 
 > [asr561 發表於 2014-7-28 19:30](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=229517&ptid=17393)
+
 > LZ我前几天貌似收藏了你deviantart的主页……从booru从那个黑色高靴的link点到的。 ...
 
 额 黑色高靴..你是指连体衣服的那个吗？
+
 那个是我的随机作品啦</ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op></ignore_js_op>

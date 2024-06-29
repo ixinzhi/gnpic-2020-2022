@@ -4,7 +4,7 @@
 
 TID：3193
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -16,11 +16,11 @@ Here's some of my latest. Enjoy!
 
 YA-HA!!!
 
-[ *本帖最後由 Trayx 於 2009-7-1 10:09 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 Trayx 於 2009-7-1 10:09 編輯* ] 
 
 # 2
 
- <ignore_js_op>[gts-again-52.jpg](forum.php?mod=attachment&aid=OTcwOHxiNzUwMThiN3wxNjAzODgyMzA1fDE4MjMwfDMxOTM%3D&nothumb=yes) *(196.19 KB, 下載次數: 9)*
+<ignore_js_op>[gts-again-52.jpg](forum.php?mod=attachment&aid=OTcwOHxiNzUwMThiN3wxNjAzODgyMzA1fDE4MjMwfDMxOTM%3D&nothumb=yes) *(196.19 KB, 下載次數: 9)*
 
 [下載附件](forum.php?mod=attachment&aid=OTcwOHxiNzUwMThiN3wxNjAzODgyMzA1fDE4MjMwfDMxOTM%3D&nothumb=yes)
 

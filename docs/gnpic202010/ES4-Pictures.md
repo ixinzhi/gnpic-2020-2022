@@ -4,15 +4,15 @@
 
 TID：1571
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
-製作了新圖片.....<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+製作了新圖片..... 
 
 # 2
 
- <ignore_js_op>[ScreenShot8.JPG](forum.php?mod=attachment&aid=NTQwNXw4Y2Y2MTA3ZXwxNjAzODgzMzc2fDE4MjMwfDE1NzE%3D&nothumb=yes) *(92.03 KB, 下載次數: 14)*
+<ignore_js_op>[ScreenShot8.JPG](forum.php?mod=attachment&aid=NTQwNXw4Y2Y2MTA3ZXwxNjAzODgzMzc2fDE4MjMwfDE1NzE%3D&nothumb=yes) *(92.03 KB, 下載次數: 14)*
 
 [下載附件](forum.php?mod=attachment&aid=NTQwNXw4Y2Y2MTA3ZXwxNjAzODgzMzc2fDE4MjMwfDE1NzE%3D&nothumb=yes)
 

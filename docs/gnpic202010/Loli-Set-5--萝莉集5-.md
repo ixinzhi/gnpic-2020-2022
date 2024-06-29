@@ -4,7 +4,7 @@
 
 TID：2730
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
@@ -18,11 +18,11 @@ Poser L 102-116
 
 [http://www.megaupload.com/?d=M6STGM6Z](http://www.megaupload.com/?d=M6STGM6Z)
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[PoserL102.png](forum.php?mod=attachment&aid=ODQxMnxkMTg1MjE1Y3wxNjAzODgyNjY0fDE4MjMwfDI3MzA%3D&nothumb=yes) *(134.25 KB, 下載次數: 2)*
+<ignore_js_op>[PoserL102.png](forum.php?mod=attachment&aid=ODQxMnxkMTg1MjE1Y3wxNjAzODgyNjY0fDE4MjMwfDI3MzA%3D&nothumb=yes) *(134.25 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=ODQxMnxkMTg1MjE1Y3wxNjAzODgyNjY0fDE4MjMwfDI3MzA%3D&nothumb=yes)
 
@@ -112,7 +112,7 @@ YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="s
 
 2009-5-6 21:34 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![PoserL116.png](static/image/common/none.gif "PoserL116.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![PoserL116.png](static/image/common/none.gif "PoserL116.png")](javascript:;)</ignore_js_op>  
 
 # 3
 
@@ -126,11 +126,11 @@ Poser L 116-127
 
 [http://www.megaupload.com/?d=APNYNG4Y](http://www.megaupload.com/?d=APNYNG4Y)
 
-YA-HA!!!<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 4
 
- <ignore_js_op>[PoserL116.png](forum.php?mod=attachment&aid=ODQyN3wwMjBiZmJkN3wxNjAzODgyNjY0fDE4MjMwfDI3MzA%3D&nothumb=yes) *(272.11 KB, 下載次數: 0)*
+<ignore_js_op>[PoserL116.png](forum.php?mod=attachment&aid=ODQyN3wwMjBiZmJkN3wxNjAzODgyNjY0fDE4MjMwfDI3MzA%3D&nothumb=yes) *(272.11 KB, 下載次數: 0)*
 
 [下載附件](forum.php?mod=attachment&aid=ODQyN3wwMjBiZmJkN3wxNjAzODgyNjY0fDE4MjMwfDI3MzA%3D&nothumb=yes)
 

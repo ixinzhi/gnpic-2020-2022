@@ -4,23 +4,25 @@
 
 TID：2634
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 I was able to find a loli poser!
+
 Hooray for LOLI!
 
 ![](static/image/smiley/bigface/50.gif)
 
 我能找到一个萝莉波塞尔！
+
 万岁的萝莉！
 
-YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 2
 
- <ignore_js_op>[Poser L1.png](forum.php?mod=attachment&aid=Nzk2MXxlMWJlMGFhMnwxNjAzODcwNDMwfDE4MjMwfDI2MzQ%3D&nothumb=yes) *(183.92 KB, 下載次數: 21)*
+<ignore_js_op>[Poser L1.png](forum.php?mod=attachment&aid=Nzk2MXxlMWJlMGFhMnwxNjAzODcwNDMwfDE4MjMwfDI2MzQ%3D&nothumb=yes) *(183.92 KB, 下載次數: 21)*
 
 [下載附件](forum.php?mod=attachment&aid=Nzk2MXxlMWJlMGFhMnwxNjAzODcwNDMwfDE4MjMwfDI2MzQ%3D&nothumb=yes)
 
@@ -62,7 +64,7 @@ YA-HA!!!<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="s
 
 2009-4-21 23:18 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![Poser L7.png](static/image/common/none.gif "Poser L7.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![Poser L7.png](static/image/common/none.gif "Poser L7.png")](javascript:;)</ignore_js_op>  
 
 # 3
 
@@ -72,11 +74,11 @@ I'm glad you guys like them. Well I'm learning bit by bit and I hope to get the 
 
 我很高兴你们喜欢他们。以及我学习一点点，我希望获得挂起的this.But我要去尝试和学习它一点点的时间。
 
-YA-HA!!!<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+YA-HA!!! 
 
 # 4
 
- <ignore_js_op>[PoserL8.png](forum.php?mod=attachment&aid=Nzk3MXw2OWYzYjJmM3wxNjAzODcwNDMwfDE4MjMwfDI2MzQ%3D&nothumb=yes) *(230.27 KB, 下載次數: 8)*
+<ignore_js_op>[PoserL8.png](forum.php?mod=attachment&aid=Nzk3MXw2OWYzYjJmM3wxNjAzODcwNDMwfDE4MjMwfDI2MzQ%3D&nothumb=yes) *(230.27 KB, 下載次數: 8)*
 
 [下載附件](forum.php?mod=attachment&aid=Nzk3MXw2OWYzYjJmM3wxNjAzODcwNDMwfDE4MjMwfDI2MzQ%3D&nothumb=yes)
 
@@ -130,7 +132,7 @@ YA-HA!!!<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="s
 
 2009-4-22 02:22 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
 
-[![PoserL16.png](static/image/common/none.gif "PoserL16.png")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[![PoserL16.png](static/image/common/none.gif "PoserL16.png")](javascript:;)</ignore_js_op>  
 
 # 5
 
@@ -141,15 +143,16 @@ Thanks everyone and I'll take you guys advice and both put the out as single fil
 谢谢大家，我会考虑你们的意见都将作为单一文件并将其放入一个RAR压缩文件夹中。这里是下一批享受。
 
 PosersL 17-33
+
 [http://www.megaupload.com/?d=0YO3C2W9](http://www.megaupload.com/?d=0YO3C2W9)
 
 YA-HA!!!
 
-[ *本帖最後由 Trayx 於 2009-4-22 11:58 編輯* ]<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 Trayx 於 2009-4-22 11:58 編輯* ] 
 
 # 6
 
- <ignore_js_op>[PoserL17.png](forum.php?mod=attachment&aid=Nzk4N3xmZjM3YWRlYXwxNjAzODcwNDMwfDE4MjMwfDI2MzQ%3D&nothumb=yes) *(381.21 KB, 下載次數: 2)*
+<ignore_js_op>[PoserL17.png](forum.php?mod=attachment&aid=Nzk4N3xmZjM3YWRlYXwxNjAzODcwNDMwfDE4MjMwfDI2MzQ%3D&nothumb=yes) *(381.21 KB, 下載次數: 2)*
 
 [下載附件](forum.php?mod=attachment&aid=Nzk4N3xmZjM3YWRlYXwxNjAzODcwNDMwfDE4MjMwfDI2MzQ%3D&nothumb=yes)
 

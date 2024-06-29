@@ -4,19 +4,21 @@
 
 TID：1576
 
-<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+ 
 
 # 1
 
 哇呀呀，做SM比GTS轻松多了啊，GTS的修边实在是太辛苦了。。。
+
 这三张图非常非常大，不是一般的大，绝对让你震撼！
+
 没办法。。。试了很多次都发不出去，图太大了，只能压缩了
 
-[ *本帖最後由 xnr 於 2008-7-15 18:13 編輯* ]<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2008-7-15 18:13 編輯* ] 
 
 # 2
 
- <ignore_js_op>[huge-lip-1.jpg](forum.php?mod=attachment&aid=NTQxNXwxZTdhOTA2OXwxNjAzODgxOTk4fDE4MjMwfDE1NzY%3D&nothumb=yes) *(1.71 MB, 下載次數: 52)*
+<ignore_js_op>[huge-lip-1.jpg](forum.php?mod=attachment&aid=NTQxNXwxZTdhOTA2OXwxNjAzODgxOTk4fDE4MjMwfDE1NzY%3D&nothumb=yes) *(1.71 MB, 下載次數: 52)*
 
 [下載附件](forum.php?mod=attachment&aid=NTQxNXwxZTdhOTA2OXwxNjAzODgxOTk4fDE4MjMwfDE1NzY%3D&nothumb=yes)
 
@@ -38,20 +40,23 @@ TID：1576
 
 點擊文件名下載附件
 
-3.69 MB, 下載次數: 596</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+3.69 MB, 下載次數: 596</ignore_js_op>  
 
 # 3
 
 Could you speak Chinese?
+
 What is your meaning?
+
 后面两张居然都发不出去。。。我还是一张一张发的。。。
+
 真的是发不出去。。。不好意思，如果下载不了只可惜你们没有眼福了。。。
 
-[ *本帖最後由 xnr 於 2008-7-15 21:56 編輯* ]<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+[ *本帖最後由 xnr 於 2008-7-15 21:56 編輯* ] 
 
 # 4
 
-貌似喜欢的人不多，我就不上传了。。。<title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+貌似喜欢的人不多，我就不上传了。。。 
 
 # 5
 
