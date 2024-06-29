@@ -1,0 +1,147 @@
+# 街角【18p】
+
+作者：nicernight
+
+TID：30739
+
+<title>1</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 1
+
+第一次用honeyselect做小故事，本来还想再做一些字幕，增进故事性，可惜文笔渣渣，只能作罢。所以就直接放图，希望各位喜欢????。<title>2</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 2
+
+ <ignore_js_op>[D5FFDB76-CE69-4CA9-B747-0A1CED2A62D7.png](forum.php?mod=attachment&aid=ODg0MTh8YmFiMjYzMjh8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(267.04 KB, 下載次數: 13)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MTh8YmFiMjYzMjh8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:24 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![D5FFDB76-CE69-4CA9-B747-0A1CED2A62D7.png](img/003b6042baa7a6ce44fd0077c8413600.png "D5FFDB76-CE69-4CA9-B747-0A1CED2A62D7.png")](javascript:;)</ignore_js_op> <ignore_js_op>[DC17E3F1-119C-40E3-B0C8-B4C41C119F63.png](forum.php?mod=attachment&aid=ODg0MTl8YzMxNWExYTZ8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(233.93 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MTl8YzMxNWExYTZ8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:24 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![DC17E3F1-119C-40E3-B0C8-B4C41C119F63.png](img/688c52d46a2c908c3273e229298783eb.png "DC17E3F1-119C-40E3-B0C8-B4C41C119F63.png")](javascript:;)</ignore_js_op> <ignore_js_op>[E026F10D-6514-49E5-AFAE-32BCA4021A9A.png](forum.php?mod=attachment&aid=ODg0MjB8MTlhZWJjZWF8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(261.18 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MjB8MTlhZWJjZWF8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:24 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![E026F10D-6514-49E5-AFAE-32BCA4021A9A.png](img/5c683fbc805dc20dc0c556b828f59e7e.png "E026F10D-6514-49E5-AFAE-32BCA4021A9A.png")](javascript:;)</ignore_js_op> <ignore_js_op>[8F7C88EE-D564-4F9C-82B7-A7F0FA24037B.png](forum.php?mod=attachment&aid=ODg0MjF8NjNmZmY1YWR8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(195.1 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MjF8NjNmZmY1YWR8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:25 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![8F7C88EE-D564-4F9C-82B7-A7F0FA24037B.png](img/d44e407db0a3e092da480459766daec5.png "8F7C88EE-D564-4F9C-82B7-A7F0FA24037B.png")](javascript:;)</ignore_js_op> <ignore_js_op>[C385007A-F0CA-4969-9B42-90C8D07E30A1.png](forum.php?mod=attachment&aid=ODg0MjJ8NDYwMDI1NDV8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(264.69 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MjJ8NDYwMDI1NDV8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:25 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![C385007A-F0CA-4969-9B42-90C8D07E30A1.png](img/d2228a22658901da3dbdbb73d418170b.png "C385007A-F0CA-4969-9B42-90C8D07E30A1.png")](javascript:;)</ignore_js_op> <ignore_js_op>[EBDCF1FD-5B3F-43DA-947A-36318FFE610F.png](forum.php?mod=attachment&aid=ODg0MjN8YmU0ZDRkYTZ8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(235.27 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MjN8YmU0ZDRkYTZ8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:26 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![EBDCF1FD-5B3F-43DA-947A-36318FFE610F.png](img/6f9ad72e97b9f2982e63d34209c27af5.png "EBDCF1FD-5B3F-43DA-947A-36318FFE610F.png")](javascript:;)</ignore_js_op> <ignore_js_op>[91ADCDDA-EC2C-4AAA-8066-96863BDB00A3.png](forum.php?mod=attachment&aid=ODg0MjR8NjllM2M1ZTN8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(273.26 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MjR8NjllM2M1ZTN8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:26 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![91ADCDDA-EC2C-4AAA-8066-96863BDB00A3.png](img/32af56cc898f63411040c338f457588c.png "91ADCDDA-EC2C-4AAA-8066-96863BDB00A3.png")](javascript:;)</ignore_js_op> <ignore_js_op>[09C09D7E-4F9B-43D1-ABA7-273D550D0CBC.png](forum.php?mod=attachment&aid=ODg0MjV8N2NjMDFmNDR8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(327.1 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MjV8N2NjMDFmNDR8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:26 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![09C09D7E-4F9B-43D1-ABA7-273D550D0CBC.png](img/b9809cee66e0deef783e21649f796f61.png "09C09D7E-4F9B-43D1-ABA7-273D550D0CBC.png")](javascript:;)</ignore_js_op> <ignore_js_op>[4011FC46-D846-497C-9191-A7B2647B7C7A.png](forum.php?mod=attachment&aid=ODg0MjZ8ZjZhZDFkY2R8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(310.06 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MjZ8ZjZhZDFkY2R8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:27 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![4011FC46-D846-497C-9191-A7B2647B7C7A.png](img/d60a1881f0033826b3aeaae8f3dd8ba9.png "4011FC46-D846-497C-9191-A7B2647B7C7A.png")](javascript:;)</ignore_js_op> <ignore_js_op>[DD84D094-5B7D-4F62-8CFD-DD75A4005F92.png](forum.php?mod=attachment&aid=ODg0Mjd8NWEzNzAxNmF8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(275.74 KB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0Mjd8NWEzNzAxNmF8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:27 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![DD84D094-5B7D-4F62-8CFD-DD75A4005F92.png](img/644c5208a945c94cd68e145784dab84a.png "DD84D094-5B7D-4F62-8CFD-DD75A4005F92.png")](javascript:;)</ignore_js_op> <ignore_js_op>[9C97CDA3-A713-4A51-9B46-5B89947C1F10.png](forum.php?mod=attachment&aid=ODg0Mjh8Y2NhMDYyZWF8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(318.26 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0Mjh8Y2NhMDYyZWF8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:27 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![9C97CDA3-A713-4A51-9B46-5B89947C1F10.png](img/06d9a34d82bdbae1b255e850a868e21e.png "9C97CDA3-A713-4A51-9B46-5B89947C1F10.png")](javascript:;)</ignore_js_op> <ignore_js_op>[216B6BF1-9362-44C5-862B-779E2BCBEF18.png](forum.php?mod=attachment&aid=ODg0Mjl8N2FmMzVhNGV8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(356.14 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0Mjl8N2FmMzVhNGV8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:27 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![216B6BF1-9362-44C5-862B-779E2BCBEF18.png](img/4b1b022ad02cc794af4fdaeb47c05fb1.png "216B6BF1-9362-44C5-862B-779E2BCBEF18.png")](javascript:;)</ignore_js_op> <ignore_js_op>[413ADF76-6698-4608-B20B-1A166725C323.png](forum.php?mod=attachment&aid=ODg0MzB8Y2EwY2IwODd8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(240.82 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MzB8Y2EwY2IwODd8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:28 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![413ADF76-6698-4608-B20B-1A166725C323.png](img/85f4eaadbcbb72751ce2a5ba1101f6ad.png "413ADF76-6698-4608-B20B-1A166725C323.png")](javascript:;)</ignore_js_op> <ignore_js_op>[C8E6A58C-4EE8-4FD8-B224-55EB5D8AD07A.png](forum.php?mod=attachment&aid=ODg0MzF8YjdhMjYyY2J8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(328.95 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MzF8YjdhMjYyY2J8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:28 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![C8E6A58C-4EE8-4FD8-B224-55EB5D8AD07A.png](img/f16f5eca1a70fc5efe957e008ace4fa5.png "C8E6A58C-4EE8-4FD8-B224-55EB5D8AD07A.png")](javascript:;)</ignore_js_op> <ignore_js_op>[10188ACE-1D3E-4E6A-AF5A-D1F69EE5F112.png](forum.php?mod=attachment&aid=ODg0MzJ8NDAzNmI1ZTN8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(350.32 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MzJ8NDAzNmI1ZTN8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:28 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![10188ACE-1D3E-4E6A-AF5A-D1F69EE5F112.png](img/b7adc3e140c906e407ff4fd79f0f5091.png "10188ACE-1D3E-4E6A-AF5A-D1F69EE5F112.png")](javascript:;)</ignore_js_op> <title>3</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 3
+
+part2 感觉hs这个软件可以深挖一下，争取做出更精致的系列。<title>4</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 4
+
+ <ignore_js_op>[6F7BED98-DBD7-4F3B-9AE8-23922C92D688.png](forum.php?mod=attachment&aid=ODg0MzN8NzVmZTc3ZTR8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(332.8 KB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MzN8NzVmZTc3ZTR8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:29 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![6F7BED98-DBD7-4F3B-9AE8-23922C92D688.png](img/c1632ebb706ab15415492ffb861ca91f.png "6F7BED98-DBD7-4F3B-9AE8-23922C92D688.png")](javascript:;)</ignore_js_op> <ignore_js_op>[0DAB642E-7B9A-4064-BD31-4317207BAD12.png](forum.php?mod=attachment&aid=ODg0MzR8ZWI0ZGY4NTF8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(367.47 KB, 下載次數: 1)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MzR8ZWI0ZGY4NTF8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:30 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![0DAB642E-7B9A-4064-BD31-4317207BAD12.png](img/0c9cfd80af8b885dbf789a2c03db5a29.png "0DAB642E-7B9A-4064-BD31-4317207BAD12.png")](javascript:;)</ignore_js_op> <ignore_js_op>[5BBD45DE-C866-4314-A9E2-C6B2FB5963DD.png](forum.php?mod=attachment&aid=ODg0MzV8MDFlZjIzNDN8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes) *(336.06 KB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODg0MzV8MDFlZjIzNDN8MTYzMjE4MjY5OXwxODIzMHwzMDczOQ%3D%3D&nothumb=yes)
+
+2021-4-20 23:30 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![5BBD45DE-C866-4314-A9E2-C6B2FB5963DD.png](img/2e8026b07f6a05011e8786f34d33d26f.png "5BBD45DE-C866-4314-A9E2-C6B2FB5963DD.png")](javascript:;)</ignore_js_op> <title>5</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 5
+
+> (别）看我的 發表於 2021-4-21 02:05
+> 小弟獻醜了
+> 
+> 話説 樓主會介意我把這篇文放到原創文章區蹭點熱度嗎？ww
+
+当然可以啦 说起来阁下的文笔真的不错，这是我从未设想的道路<title>6</title> <link href="../Styles/Style.css" type="text/css" rel="stylesheet">
+
+# 6
+
+> (别）看我的 發表於 2021-4-21 17:15
+> 小弟是理科人，文筆普普啦，平時都是愛看翻譯小説（還是沒什麽營養的那種異世界穿越小説）才稍微有點墨水 ...
+
+是剑，处理模型的时候功课没做完善，无视就好
