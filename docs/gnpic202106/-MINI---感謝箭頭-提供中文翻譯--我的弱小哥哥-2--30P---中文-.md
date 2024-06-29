@@ -1,0 +1,37 @@
+# [MINI] [感謝箭頭 提供中文翻譯] 我的弱小哥哥 2 [30P] [中文]
+
+作者：kevinsky05
+
+TID：29423
+
+ 
+
+# 1
+
+*本帖最後由 kevinsky05 於 2020-9-19 11:34 編輯*
+
+![](img/cb06df08c6c2cf22ca81423a2a1c000f.png)
+
+**Cover.png** *(2.46 MB, 下載次數: 2)*
+
+[下載附件](forum.php?mod=attachment&aid=ODQ5NjF8YzFhYTQ3NDd8MTYzMjE4OTIzOXwxODIzMHwyOTQyMw%3D%3D&nothumb=yes)
+
+2020-9-5 14:44 上傳
+
+[https://drive.google.com/file/d/ ... -E/view?usp=sharing](https://drive.google.com/file/d/1pOGN_fTR8wLUwM2BQZTmaAYcw6C6az-E/view?usp=sharing)
+
+链接：[https://pan.baidu.com/s/1qSQOT_rfC7da-0YIBzuFPA](https://pan.baidu.com/s/1qSQOT_rfC7da-0YIBzuFPA)
+
+提取码：48h7
+
+解壓密: kevinsky05
+
+ 
+
+# 2
+
+> [失落的男孩 發表於 2021-7-23 14:47](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=474558&ptid=29423)
+
+> 阅读权限怎么提高啊，楼主有些作品我因为阅读权限不够进不去
+
+如果可以就自己嘗試創作，不然就是多回覆吧</ignore_js_op>

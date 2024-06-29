@@ -1,0 +1,39 @@
+# [物品化] 变成老师的鞋子 (足X,足舐, 师生)
+
+作者：St2019
+
+TID：30247
+
+ 
+
+# 1
+
+班上最优秀的两位学生(LSP)希望变成他们亲爱的老师的平底鞋,服务老师的双脚.
+
+"这些小年轻脑子里都在想什么啊~为什么会喜欢我的脚...忙了一天了有点味道了吧~"
+
+殊不知两个小色批已经在她脚下爽翻天了.
+
+ 
+
+# 2
+
+[CapTSS.PNG](forum.php?mod=attachment&aid=ODcwODJ8ODlkMzVjMjJ8MTYzMjE4NTM2MnwxODIzMHwzMDI0Nw%3D%3D&nothumb=yes) *(1.79 MB, 下載次數: 15)*
+
+[下載附件](forum.php?mod=attachment&aid=ODcwODJ8ODlkMzVjMjJ8MTYzMjE4NTM2MnwxODIzMHwzMDI0Nw%3D%3D&nothumb=yes)
+
+2021-1-31 17:40 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![CapTSS.PNG](img/d0922f4c9856b05da0fe40def0740db8.png "CapTSS.PNG")](javascript:;)</ignore_js_op>  
+
+# 3
+
+> [深巷少女与猫 發表於 2021-1-31 19:22](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=458486&ptid=30247)
+
+> 是奖励好学生不是惩罚坏学生吗！
+
+> 
+
+> 带上故事背景脑补果然更有趣
+
+一开始我想的也是踩踏惩罚啊，结果转念一想这么好的事情岂不是更像款待？然后就改成了主动要求得来的奖赏![](static/image/smiley/bigface/7.gif)

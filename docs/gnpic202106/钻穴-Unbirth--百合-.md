@@ -1,0 +1,63 @@
+# 钻穴（Unbirth, 百合）
+
+作者：St2019
+
+TID：31150
+
+ 
+
+# 1
+
+钻洞达人~ 百合无限好。
+
+这次一拖就是一个月。。。最后结束的也赶。因为时间问题以后会画的越来越少，随缘吧~
+
+ 
+
+# 2
+
+[ubmng - Copy.PNG](forum.php?mod=attachment&aid=ODkzNjJ8MjUxMTg1N2J8MTYzMjE3ODcwM3wxODIzMHwzMTE1MA%3D%3D&nothumb=yes) *(1.58 MB, 下載次數: 6)*
+
+[下載附件](forum.php?mod=attachment&aid=ODkzNjJ8MjUxMTg1N2J8MTYzMjE3ODcwM3wxODIzMHwzMTE1MA%3D%3D&nothumb=yes)
+
+2021-6-23 23:19 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+[![ubmng - Copy.PNG](img/fe4b344e9fc059da47941ff4304ab957.png "ubmng - Copy.PNG")](javascript:;)</ignore_js_op>  
+
+# 3
+
+> [zxk135 發表於 2021-6-23 23:43](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=471948&ptid=31150)
+
+> 好棒啊！大大画的真好，有感觉了
+
+感谢支持！以后会出新很慢但还是尽量画好~ 
+
+# 4
+
+> [咕咕的攸栗 發表於 2021-6-24 09:06](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=471979&ptid=31150)
+
+> UB党和百合党双厨狂喜啊，建议楼主参考一下里面的阴道断面图
+
+感谢！其实里面的视角是想参考pixiv一些大佬的粘膜图画的，但是因为这张拖太久了，时间也越来越少，只能退而求次了![](static/image/smiley/bigface/63.gif)
+
+ 
+
+# 5
+
+> [michael10611 發表於 2021-6-24 11:03](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=471986&ptid=31150)
+
+> 樓主有沒有考慮用你的CG出遊戲? 我覺一定大賣的~~~
+
+感觉我这水平还是够不上...加上画画时间越来越少，今后可能会极其佛系~
+
+ 
+
+# 6
+
+*本帖最後由 St2019 於 2021-6-24 18:41 編輯*
+
+> [Shibazaki 發表於 2021-6-24 17:37](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=472015&ptid=31150)
+
+> 下体结构改一下吧，看着太违和了，真就除了膣穴别的都没了啊
+
+赶工产品。。。这张的草稿五月份就画完了，实在不想一直拖在这张上面了。背景也随便油漆桶了事~~ 主要是最近生活中有太多更值得去花时间的东西，事务的加重再加上谈了一个小姐姐导致对画画的时间分配和兴趣都骤降，以后也会慢慢淡出吧![](static/image/smiley/bigface/63.gif)

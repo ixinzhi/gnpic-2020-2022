@@ -1,0 +1,179 @@
+# 自讨苦吃 Part1 （vore 从里面淦）
+
+作者：St2019
+
+TID：29754
+
+ 
+
+# 1
+
+*本帖最後由 St2019 於 2020-11-3 13:44 編輯*
+
+拖了半个月都没画完的漫画。最近和前段时间都太忙了，只好先把画完的几张放出了。分part是因为不知道啥时候能完成。。。未完待续。
+
+钻到胃里淦肠子的想法很早就有了，感觉挺刺激的，到现在才开始实施...
+
+发出来顺序好像是反的，奇怪了。 
+
+ 
+
+# 2
+
+[tc8.jpg](forum.php?mod=attachment&aid=ODU5MDB8YzIyNTM1NjB8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes) *(1.06 MB, 下載次數: 10)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU5MDB8YzIyNTM1NjB8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes)
+
+2020-11-3 12:52 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+p8
+
+[![p8](img/a013b5ed7b782525a8384d14c4934de8.png "p8")](javascript:;)</ignore_js_op>  [tc7.jpg](forum.php?mod=attachment&aid=ODU4OTl8NWViNmEwODV8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes) *(1.11 MB, 下載次數: 7)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU4OTl8NWViNmEwODV8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes)
+
+2020-11-3 12:52 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+p7
+
+[![p7](img/fdae822a3e1ae1a393e55db887a005f9.png "p7")](javascript:;)</ignore_js_op>  [tc6.jpg](forum.php?mod=attachment&aid=ODU4OTh8MjhkMWFiYmZ8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes) *(1.41 MB, 下載次數: 6)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU4OTh8MjhkMWFiYmZ8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes)
+
+2020-11-3 12:52 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+p6
+
+[![p6](img/c00649d976ae1b7ecd2a40407cdde81f.png "p6")](javascript:;)</ignore_js_op>  [tc5.jpg](forum.php?mod=attachment&aid=ODU4OTd8YTRhOWUxNjN8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes) *(1 MB, 下載次數: 7)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU4OTd8YTRhOWUxNjN8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes)
+
+2020-11-3 12:52 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+p5
+
+[![p5](img/2eb59c0b73d668364d0f659741d31d35.png "p5")](javascript:;)</ignore_js_op>  [tc4.jpg](forum.php?mod=attachment&aid=ODU4OTZ8OTczNmQ3ZmZ8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes) *(859.16 KB, 下載次數: 12)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU4OTZ8OTczNmQ3ZmZ8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes)
+
+2020-11-3 12:52 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+p4
+
+[![p4](img/22569a29afe1eb4831bb8d438d43b72a.png "p4")](javascript:;)</ignore_js_op>  [tc3.jpg](forum.php?mod=attachment&aid=ODU4OTV8NWI4NzI5OTZ8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes) *(744.91 KB, 下載次數: 8)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU4OTV8NWI4NzI5OTZ8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes)
+
+2020-11-3 12:51 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+p3
+
+[![p3](img/c9544ea85364c4426f5bdc0c0290f090.png "p3")](javascript:;)</ignore_js_op>  [tc2.jpg](forum.php?mod=attachment&aid=ODU4OTR8NzM3Y2M0OWZ8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes) *(1.03 MB, 下載次數: 10)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU4OTR8NzM3Y2M0OWZ8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes)
+
+2020-11-3 12:51 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+p2
+
+[![p2](img/305991b22dd6ebf6725d46ee3e545767.png "p2")](javascript:;)</ignore_js_op>  [tc1.jpg](forum.php?mod=attachment&aid=ODU4OTN8MWJhZDgxOWZ8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes) *(746.66 KB, 下載次數: 11)*
+
+[下載附件](forum.php?mod=attachment&aid=ODU4OTN8MWJhZDgxOWZ8MTYzMjE4ODcwOXwxODIzMHwyOTc1NA%3D%3D&nothumb=yes)
+
+2020-11-3 12:51 上傳 [![](static/image/common/rleft.gif)](javascript:;) [![](static/image/common/rright.gif)](javascript:;)
+
+p1
+
+[![p1](img/4905a5828c22965b18b6fad90980dd2f.png "p1")](javascript:;)</ignore_js_op>  
+
+# 3
+
+> [琉璃 發表於 2020-11-3 13:06](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=451145&ptid=29754)
+
+> 是漫画大佬啊啊啊，以及 这是什么神奇的操作……
+
+啊，我这算是。。。肠交？
+
+ 
+
+# 4
+
+> [aaabcd3 發表於 2020-11-3 14:21](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=451152&ptid=29754)
+
+> 我去，这可真是开了眼界的操作
+
+我有时候会想些骚操作![](static/image/smiley/bigface/52.gif) 
+
+# 5
+
+> [nhbnfn 發表於 2020-11-4 00:22](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=451177&ptid=29754)
+
+> 我说怎么d站上的我看了半天没看懂 到这一看才明白 奇怪的xp增加了 大佬画的真的好康 草内壁是没想到的玩法  ...
+
+哈哈哈英语对话不会加只能放无字版了
+
+ 
+
+# 6
+
+> [wqr 發表於 2020-11-3 13:44](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=451150&ptid=29754)
+
+> 奇怪的XP又增加了呢~，后面写文又有备用题材了
+
+建议给我个称号：xp扩展者![](static/image/smiley/bigface/53.gif) 
+
+# 7
+
+> [laohantuibaoma 發表於 2020-11-4 16:53](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=451204&ptid=29754)
+
+> 莫名带感，见过撸胃的没见过透过幽门撸肠的，好点子！
+
+那么撸胃的哪里能看呢![](static/image/smiley/bigface/7.gif)
+
+ 
+
+# 8
+
+> [laohantuibaoma 發表於 2020-11-5 08:04](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=451225&ptid=29754)
+
+> 很久以前的老资源了，作者名字忘了呢，主要是画母龙的，被吞掉后在胃中边喝液体边冲0.0 ...
+
+淦哦，更想看了。![](static/image/smiley/bigface/63.gif) 
+
+# 9
+
+> [焦冥小虫xxx 發表於 2020-11-7 10:36](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=451348&ptid=29754)
+
+> 好家伙，我直接好家伙(・◇・)这xp小脑洞蛮带感的，我咋没想到呢～
+
+哦对了大佬，今天可能出一个寄生虫类的，到时候at你看看能不能设定有幸被你的文采用![](static/image/smiley/bigface/7.gif)
+
+ 
+
+# 10
+
+> [zhangwuwen321 發表於 2020-11-9 07:26](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=451463&ptid=29754)
+
+> 我其实一直有个想法，钻进py后从内部艹py,不知道大佬有没有过类似的想法
+
+有啊，还有在子宫里淦宫颈的，不过已经有个漫画是这个题材了。
+
+ 
+
+# 11
+
+> [zhangwuwen321 發表於 2020-11-10 12:24](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=451532&ptid=29754)
+
+> 哈哈,英雄所见略同，那大佬整一个？
+
+以后可以试试，最近可能8太行
+
+ 
+
+# 12
+
+> [San_Diego 發表於 2020-11-28 02:26](https://giantessnight.com/gnforum2012/forum.php?mod=redirect&goto=findpost&pid=452830&ptid=29754)
+
+> 画风很好啊~还有这个剧情 实在是脑洞大开！马克了
+
+哈哈哈其实我放之前觉得应该没有多少人喜欢的
